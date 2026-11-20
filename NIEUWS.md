@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-11-2026 om 20:15*
+*Laatst bijgewerkt: 20-11-2026 om 02:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [President Trump belde vanuit Air Force One in bij 'Europese tegentop'](https://nos.nl/l/2640194)
-  > De Amerikaanse president Trump heeft na de APEC-top in China, waar hij sprak met de Chinese president Xi en Russische president Poetin, ingebeld bij...
-- [Nederland roept Russische ambassadeur op het matje voor projectiel bij ambassade](https://nos.nl/l/2640193)
-  > Minister Berendsen van Buitenlandse Zaken laat de Russische ambassadeur ontbieden, omdat een neergekomen projectiel vandaag de Nederlandse ambassade...
-- [Onderzoek geweld Overasselt duurt nog maanden, meer aanhoudingen verwacht](https://nos.nl/l/2640180)
-  > Het onderzoek naar de geweldsuitbarsting in Overasselt is zo omvangrijk dat de politie nog zeker vier maanden nodig heeft om te achterhalen wat zich...
-- ['Onze harten zijn gevuld met hoop', Rohingya reageren op genocide-uitspraak](https://nos.nl/l/2640179)
-  > "Vandaag zijn onze harten gevuld met hoop, vreugde en emotie", reageert een Rohingya-bewoner in het vluchtelingenkamp Cox's Bazar in Bangladesh tegen...
-- [Recordbeursgang voor AI-bedrijf Anthropic, koers stijgt meteen met een derde](https://nos.nl/l/2640176)
-  > Het aandeel van AI-bedrijf Anthropic is de eerste uren na de beursgang flink in waarde gestegen. De openingskoers van het bedrijf achter AI-model...
+- [Uitgever stopt verkoop biografie oudste Deen ooit na onthullingen over naziverleden](https://nos.nl/l/2640218)
+  > De oudste vrouw van Denemarken is in opspraak geraakt vanwege onthullingen over haar verleden bij de Deense nazipartij. Een biografie over haar leven...
+- [Town to City verkozen tot beste Nederlandse game](https://nos.nl/l/2640217)
+  > Het bouwspel Town to City is bij de Dutch Game Awards uitgeroepen tot beste Nederlandse game van 2026. Het spel van de Utrechtse studio Galaxy Grove...
+- [Haïtiaanse politie meldt tientallen doden bij grote operatie tegen bendes](https://nos.nl/l/2640215)
+  > De Haïtiaanse politie is een grootschalige operatie begonnen om bendes te verdrijven uit een wijk in de hoofdstad Port-au-Prince. Deze wijk ligt aan...
+- [Wereldberoemd nijlpaard Fiona eet gebreide muts op en overleeft dat niet](https://nos.nl/l/2640213)
+  > In de dierentuin van de Amerikaanse stad Cincinnati is het wereldberoemde nijlpaard Fiona op 9-jarige leeftijd doodgegaan. Elf dagen geleden at ze...
+- [Succesvolle eerste beursdag voor Anthropic, afwachten of optimisme doorzet](https://nos.nl/l/2640208)
+  > De slotkoers van de grootste beursgang ooit is bekend: 97,17 dollar. Daarmee lijkt de eerste beursdag van het Amerikaanse AI-bedrijf Anthropic een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Aspinall wint van Clemens, zo Gian van Veen in actie, Michael van Gerwen in de laatste partij van de avond](https://www.ad.nl/darts/aspinall-wint-van-clemens-zo-gian-van-veen-in-actie-michael-van-gerwen-in-de-laatste-partij-van-de-avond~a44ced04/)
-  > Het gaat goed met de Nederlanders bij de Grand Slam of Darts, een van de grote toernooien in aanloop naar het WK. Gisteravond stuntte Jermaine...
-- [Deze donkerblauwe jurk van Máxima is in potentie heel mooi, maar helaas kreukt en deukt hij](https://www.ad.nl/show/deze-donkerblauwe-jurk-van-maxima-is-in-potentie-heel-mooi-maar-helaas-kreukt-en-deukt-hij~a86341f9/)
-  > De meest besproken royaltyjurk van 2026? Josine Droogendijk weet nu al welke dat gaat zijn. Verder in deze nieuwe aflevering van Oranje Franje: een...
-- [Feyenoord en PSV allebei op dinsdagavond in de Champions League: dit is waarom](https://www.ad.nl/voetbal/feyenoord-en-psv-allebei-op-dinsdagavond-in-de-champions-league-dit-is-waarom~a94fcef3/)
-  > De Nederlandse clubs spelen normaal gesproken nooit op dezelfde avond in de Champions League, maar komende week is dat anders. Feyenoord en PSV...
-- [De grootste vervuiler van Nederland nu echt in de knel: de strafzaak gaat beginnen](https://www.ad.nl/binnenland/de-grootste-vervuiler-van-nederland-nu-echt-in-de-knel-de-strafzaak-gaat-beginnen~a58624bc/)
-  > Na jaren wachten en stapels rapporten over nare ziektes in de omgeving begint deze vrijdag de strafzaak tegen staalfabriek Tata Steel uit...
-- [Rabobank bekijkt strengere hypotheekgrens opnieuw na zorgen over 50-plussers](https://www.ad.nl/economie/rabobank-bekijkt-strengere-hypotheekgrens-opnieuw-na-zorgen-over-50-plussers~a191bdd6/)
-  > De Rabobank twijfelt over zijn eigen nieuwe hypotheekregel, waarbij de bank al vijftien jaar voor je pensioen rekent met je pensioeninkomen. Daardoor...
+- [Voornaamste adviseur Trump over cyberveiligheid vertrekt na reeks incidenten](https://www.ad.nl/buitenland/voornaamste-adviseur-trump-over-cyberveiligheid-vertrekt-na-reeks-incidenten~ae67dd9c/)
+  > De nationale directeur cyberveiligheid van de VS, Sean Cairncross, stapt op. Dat laat een medewerker van het Witte Huis donderdag weten na...
+- [Michael van Gerwen brult als vanouds na zinderende zege, Gian van Veen nieuwe nummer 2 van de wereld](https://www.ad.nl/darts/michael-van-gerwen-brult-als-vanouds-na-zinderende-zege-gian-van-veen-nieuwe-nummer-2-van-de-wereld~a44ced04/)
+  > Met het hoogste gemiddelde van alle spelers in de achtste finales heeft Michael van Gerwen zich dankzij een zinderende zege (10-8) op James Wade...
+- [Israël bombardeert voor het eerst in maanden Bekavallei in oosten van Libanon](https://www.ad.nl/buitenland/israel-bombardeert-voor-het-eerst-in-maanden-bekavallei-in-oosten-van-libanon~ac528ac3/)
+  > Het Israëlische leger heeft een luchtaanval uitgevoerd op de Bekavallei in het oosten van Libanon. Dat meldt het leger donderdag via Telegram....
+- [AD Voetbalpodcast | ‘Feyenoord-Excelsior is wel een moment om Sem Steijn speelminuten te geven’](https://www.ad.nl/voetbal/ad-voetbalpodcast-feyenoord-excelsior-is-wel-een-moment-om-sem-steijn-speelminuten-te-geven~a42af5cd9/)
+  > Het laatste blok eredivisievoetbal van 2026 gaat beginnen. Op het spel staat de wintertitel, in de AD Voetbalpodcast bespreekt Etienne Verhoeff met...
+- [GTA 6 brengt meer op dan succesfilm The Odyssey na één dag](https://www.ad.nl/games/gta-6-brengt-meer-op-dan-succesfilm-the-odyssey-na-een-dag~a4dd0eca/)
+  > De nieuwe videogame GTA 6 heeft in een dag meer opgebracht dan de populaire film The Odyssey. De game passeerde volgens filmsite Collider...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘EU wil dat lidstaten olievoorraden aanleggen op basis van verbruik’](https://fd.nl/economie/1620127/eu-wil-dat-lidstaten-olievoorraden-aanleggen-op-basis-van-verbruik)
-  > In de nieuwe regels moeten landen naast ruwe olie minimaal een olieproduct in voorraad houden. Dat kan onder meer benzine, kerosine, diesel of...
-- [Accountant legt vinger op zere plek bij Tata Steel](https://fd.nl/opinie/1620058/accountant-legt-vinger-op-zere-plek-bij-tata-steel)
-  > Zonder een akkoord over overheidssteun komt Tata Steel in IJmuiden in financieel zwaar weer terecht, valt op te maken uit de accountantsverklaring....
-- [Werkgevers krijgen zes maanden extra voor transparantie over beloning](https://fd.nl/politiek/1620116/werkgevers-krijgen-zes-maanden-extra-voor-transparantie-over-beloning)
-  > Werknemers die willen weten of hun beloning gelijkwaardig is aan die van hun collega’s, moeten opnieuw een half jaar langer wachten. De wet...
-- [Bregje de Best, vertrouweling van JPMorganChase-ceo, is een ‘force of nature’](https://fd.nl/financiele-markten/1620036/dimon-vertrouweling-bregje-de-best-is-een-natuurkracht)
-  > De 43-jarige bestormt de ladder bij JPMorganChase en wordt de nieuwe cfo bij de bank. Ze is altijd bezig om beter te worden, zeggen vrienden en...
-- [Wereldleiders bouwen in Shenzhen aan nieuwe rechtsorde, ‘Poetin grote winnaar’](https://fd.nl/politiek/1620126/wereldleiders-bouwen-in-shenzhen-aan-nieuwe-rechtsorde-poetin-grote-winnaar)
-  > De unieke topontmoeting in Shenzhen was vooral symbolisch van grote betekenis. De drie regeringsleiders willen de VN hervormen naar eigen inzicht en...
+- [Minder Markermeer](https://fd.nl/opinie/1620049/minder-markermeer)
+  > Om de zoveel jaar is er weer een ingenieur of politicus die z’n oog op ons unieke binnenmeer laat vallen, schrijft columnist Mathijs Bouman.
+- [7 dingen die niet kunnen maar wél moeten – juist nu](https://fd.nl/opinie/1619013/7-dingen-die-niet-kunnen-maar-wel-moeten-juist-nu)
+  > Zonder goedkoop gas gebeurt er niets, dus stop met duur lng uit de VS en gooi Groningen open. Zo zijn er nog zes projecten die we aan moeten durven,...
+- [Personalia vrijdag 20 november](https://fd.nl/bedrijfsleven/1620046/personalia-vrijdag-20-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Beursgang Anthropic steelt show op flink lagere beurzen](https://fd.nl/financiele-markten/1620155/beursgang-anthropic-steelt-show-op-flink-lagere-beurzen)
+  > Ondanks de koersstijging van het AI-bedrijf blijven beleggers zorgen houden over de houdbaarheid van de AI-sector.
+- [Vertraging CO₂-opslagproject Porthos kan ruim €400 mln gaan kosten](https://fd.nl/politiek/1620129/vertraging-co-opslagproject-porthos-kan-ruim-400-mln-gaan-kosten)
+  > De vertraagde start van Porthos heeft niet alleen een kostenstijging tot gevolg, maar heeft ook gevolgen voor het halen van de klimaatdoelen.
 
 ### Meest gelezen
 
