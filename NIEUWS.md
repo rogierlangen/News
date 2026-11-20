@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-11-2026 om 11:05*
+*Laatst bijgewerkt: 20-11-2026 om 19:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Myanmar noemt genocide-uitspraak Internationaal Gerechtshof 'oneerlijk'](https://nos.nl/l/2640269)
-  > De Myanmarese autoriteiten noemen de historische uitspraak van het Internationaal Gerechtshof van gisteren "oneerlijk". Het hof oordeelde dat Myanmar...
-- [Dolle Mina's starten protestappgroep tegen 'creepshots' in de Achterhoek](https://nos.nl/l/2640266)
-  > De feministische actiegroep Dolle Mina heeft protestborden geplaatst in de buurt van plekken waar creepshots zijn gemaakt. Ook is er een...
-- [Haïtianen vestigen hoop op president El Salvador, al is onduidelijk wat zijn doelen zijn](https://nos.nl/l/2640265)
-  > "Bukele! Bukele! Bukele!". Een mensenmassa beweegt zich door de Haïtiaanse hoofdstad Port-au-Prince. Er klinkt gejuich, muziek, mensen houden...
-- [Eerste 'bejaardenhuis' voor tbs'ers moet druk op andere instellingen verlichten](https://nos.nl/l/2640263)
-  > De Limburgse geestelijke gezondheidszorginstelling Mondriaan opent komende zomer in Heerlen een speciale afdeling die zich vooral richt op tbs'ers...
-- [Autowrakken uit WOII opgegraven bij vliegbasis Soesterberg: 'Een unicum'](https://nos.nl/l/2640256)
-  > Archeologen hebben twee autowrakken opgegraven op de voormalige vliegbasis Soesterberg. Vermoedelijk zijn de wagens daar in 1940 op de landingsbaan...
+- [45 kinderpornobezitters krijgen waarschuwing van de politie](https://nos.nl/l/2640339)
+  > 45 mensen hebben deze week bezoek van de politie gekregen om ze te waarschuwen om te stoppen met het downloaden of verspreiden van beeldmateriaal van...
+- [Genocide-uitspraak over Rohingya schept precedent: 'Slecht nieuws voor Israël'](https://nos.nl/l/2640335)
+  > De veroordeling van Myanmar voor genocide gisteren door het Internationaal Gerechtshof in Den Haag kan volgens experts grote gevolgen hebben voor...
+- [Dreigende taal vanuit Rusland aan Nederlandse diplomaten na drone-inslag](https://nos.nl/l/2640333)
+  > Rusland heeft dreigende taal geuit richting Nederlandse diplomaten in Oekraïne. "Nederland kan beter het advies aan alle buitenlandse diplomaten...
+- [Ondanks belofte hebben nog niet alle zorgvilla-kinderen een nieuwe plek](https://nos.nl/l/2640331)
+  > Zestien zieke en gehandicapte kinderen die zorg krijgen van Villa ExpertCare hebben nog geen nieuwe geschikte plek gevonden. Voor een deel van hen...
+- [Jetten na neonazi-docu: partijleiders moeten niet alleen optreden na incidenten](https://nos.nl/l/2640329)
+  > Partijleiders zouden eerder moeten optreden tegen rechts-extremistische inmenging en niet "pas als er incidenten bekend worden". Dat zei premier...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Oorlog Oekraïne | Drie objecten dringen Pools luchtruim binnen tijdens Russische aanvallen op Oekraïne](https://www.ad.nl/buitenland/live-oorlog-oekraine-nederlandse-ambassade-in-kyiv-beschadigd-na-aanval-russische-drone~adfb97be/)
-  > Het Poolse luchtruim is mogelijk geschonden tijdens een Russische aanvallen op Oekraïne. De Poolse generaal Ireneusz Nowak meldt dat er 11 objecten...
-- [12 flessen met meer dan 6 kilo zand in kofferbak: Franse toerist riskeert boete tot 3000 euro voor diefstal op Sardinië](https://www.ad.nl/buitenland/12-flessen-met-meer-dan-6-kilo-zand-in-kofferbak-franse-toerist-riskeert-boete-tot-3000-euro-voor-diefstal-op-sardinie~aafec5819/)
-  > Een 74-jarige Franse toerist riskeert een boete tot 3.000 euro nadat hij op Sardinië twaalf plastic flessen had gevuld met zand van verschillende...
-- [Welk land treft Oranje in kwartfinales Nations League? Loting in Nyon onderweg](https://www.ad.nl/voetbal/welk-land-treft-oranje-in-kwartfinales-nations-league-loting-in-nyon-onderweg~a84353e6/)
-  > Het Nederlands elftal gaat vanmiddag de koker in voor de loting van de kwartfinales van de Nations League. Tegen wie neemt Oranje het volgend jaar...
-- [Ongewenste gast bij eerste training van Mauricio Pochettino: drone vliegt over trainingscomplex van Manchester United](https://www.ad.nl/voetbal/ongewenste-gast-bij-eerste-training-van-mauricio-pochettino-drone-vliegt-over-trainingscomplex-van-manchester-united~a5610e84/)
-  > Al bij zijn eerste training bij Manchester United kreeg Mauricio Pochettino donderdag nogal ongewenst bezoek. Een drone vloog over het...
-- [Recherche hackte computers Tata Steel om informatie te achterhalen](https://www.ad.nl/binnenland/recherche-hackte-computers-tata-steel-om-informatie-te-achterhalen~a56a362e/)
-  > Het Openbaar Ministerie heeft ingebroken in de computers van Tata Steel om te achterhalen wat zich precies afspeelde op het gigantische terrein in...
+- [Als je Jodenhaat wilt bagatelliseren, ben je compleet van het padje](https://www.ad.nl/binnenland/als-je-jodenhaat-wilt-bagatelliseren-ben-je-compleet-van-het-padje~a0aff753/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Jennifer Lawrence noemt zoen met Josh Hutcherson haar beste filmkus](https://www.ad.nl/show/jennifer-lawrence-noemt-zoen-met-josh-hutcherson-haar-beste-filmkus~af74f2bf/)
+  > Jennifer Lawrence noemt haar zoen met Josh Hutcherson in The hunger games haar favoriete filmkus. Dat zei de actrice in de Amerikaanse talkshow Watch...
+- [LIVE VS | Trump: Nvidia moet ex-topman Jensen Huang een tweede kans geven na spionagerel](https://www.ad.nl/buitenland/live-vs-trump-nvidia-moet-ex-topman-jensen-huang-een-tweede-kans-geven-na-spionagerel~ae67dd9c/)
+  > President Donald Trump vindt dat AI-chipconcern Nvidia voormalig topman Jensen Huang een ‘tweede kans’ moet geven. Huang trad vorige week af bij...
+- [Het leven lachte Elizabeth toe, tot ze ernstig ziek werd: ‘Met mijn handen vond ik mezelf terug’](https://www.ad.nl/binnenland/het-leven-lachte-elizabeth-toe-tot-ze-ernstig-ziek-werd-met-mijn-handen-vond-ik-mezelf-terug~a784e4a0/)
+  > Nadat een virusinfectie haar hersens aantastte, moest Elizabeth Kooij Martínez zichzelf opnieuw uitvinden en ontdekken wat ze nog wel kan. „Mijn...
+- [Portugal-pensionado Cristiano Ronaldo weer wat dichter bij magische grens, ondanks pijnlijke misser](https://www.ad.nl/voetbal/portugal-pensionado-cristiano-ronaldo-weer-wat-dichter-bij-magische-grens-ondanks-pijnlijke-misser~a7eb3f19/)
+  > Cristiano Ronaldo heeft zich na zijn eerste week als gestopte international van Portugal laten gelden. De 41-jarige aanvaller van Al-Nassr kwam tegen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Christendemocraten controleren graag, behalve zichzelf](https://fd.nl/politiek/1620063/christendemocraten-controleren-graag-behalve-zichzelf)
-  > Een jaar lang werden ngo’s doorgelicht, zonder dat er iets werd gevonden. Nog langer blokkeert de Europese Volkspartij een ethiekorgaan dat...
-- [Met nieuwe supersportwagen klimt Lamborghini verder uit het dal](https://fd.nl/bedrijfsleven/1619739/met-nieuwe-supersportwagen-klimt-lamborghini-verder-uit-het-dal)
-  > Het FD ging langs bij de thuisbasis van het Italiaanse automerk, dat zijn nieuwste model presenteert. Het bedrijf heeft een sterke Italiaanse...
-- [Zie wat blinkt daar: de ring van Sinterklaas blijkt een designparel](https://fd.nl/samenleving/1619939/zie-wat-blinkt-daar-de-ring-van-sinterklaas-blijkt-een-designparel)
-  > De geelgouden Tromboni van Bvlgari komt aardig dicht in de buurt van het iconische sieraad van onze goedheiligman.
-- [Aandachtseconomie schaadt kleine belegger](https://fd.nl/opinie/1619554/aandachtseconomie-schaadt-kleine-belegger)
-  > Sociale media sturen onze aandacht en maken ons wereldbeeld vaak radicaler. In de beleggingswereld krijgen speculatieve aandelen hierdoor onevenredig...
-- [Opnieuw Russische raket- en droneaanval op Kyiv](https://fd.nl/politiek/1620180/opnieuw-russische-raket-en-droneaanval-op-kyiv)
-  > Op meerdere plekken ging het luchtalarm af. Lokale journalisten melden dat er gedurende de nacht explosies te horen waren door drones en raketten die...
+- [Shenzhen als autocratisch fotomoment](https://fd.nl/opinie/1620303/shenzhen-als-autocratisch-fotomoment)
+  > Van een historische topontmoeting was in Shenzhen geen sprake. Veel meer was het een photo opportunity, waar Xi, Poetin en Trump royaal gebruik van...
+- [Rubio: ‘Goede relatie Trump-Poetin maakt wereld veiliger’](https://fd.nl/politiek/1620314/rubio-goede-relatie-trump-poetin-maakt-wereld-veiliger)
+  > De Amerikaanse minister van buitenlandse zaken Marco Rubio heeft gereageerd op het feit dat president Trump zijn Russische ambtgenoot in Shenzhen...
+- [Trump: geen datacenters buiten de VS](https://fd.nl/politiek/1620313/trump-geen-datacenters-buiten-de-vs)
+  > Datacenters zoals in Finland worden volgens de president uiteindelijk een prooi voor China.
+- [Erfenis belastingplan is kiem voor volgende crisis](https://fd.nl/politiek/1620162/erfenis-belastingplan-is-kiem-voor-volgende-crisis)
+  > Het ‘vertrouwen is hersteld’ in de coalitie, maar met tal van openstaande rekeningen kunnen de spanningen zo weer oplaaien. Sybrand Buma mag nu een...
+- [Rechter verbiedt BYD-model in Europa vanwege gelijkenis Land Rover Defender](https://fd.nl/bedrijfsleven/1620310/rechter-verbiedt-byd-model-in-europa-vanwege-gelijkenis-land-rover-defender)
+  > Chinese luxe terreinwagen geweerd van Europese markt omdat die te veel lijkt op Land Rover Defender.
 
 ### Meest gelezen
 
