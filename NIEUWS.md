@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-11-2026 om 09:24*
+*Laatst bijgewerkt: 21-11-2026 om 17:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Universiteit Leiden stopt samenwerking met Chinese universiteit na zorgen over lekken data](https://nos.nl/l/2640396)
-  > De Universiteit Leiden heeft besloten een geplande samenwerking met de Chinese universiteit Xi'an Jiaotong niet door te laten gaan, na kritiek van...
-- [Grote politieactie bij motorclub in Rijswijk, leden verdacht van wapenhandel](https://nos.nl/l/2640394)
-  > In Rijswijk heeft gisteravond een grote politieactie plaatsgevonden. De politie viel daar binnen bij motorclub Somos Calle Brotherhood. Meerdere...
-- [Wekdienst 21/11: Klimaattop Turkije loopt uit • Groot Dictee op NPO Radio 1](https://nos.nl/l/2640381)
-  > Goedemorgen! Vandaag zijn landen nog steeds niet uitgepraat op de klimaattop in Turkije, hoewel die eigenlijk gisteren al afgerond had moeten zijn....
-- ['Internationaal Strafhof dreigt lege huls te worden door concessies aan VS'](https://nos.nl/l/2640368)
-  > Experts maken zich zorgen over de toekomst van het internationaal recht als de Verenigde Staten concessies weten af te dwingen bij het Internationaal...
-- [Podcast De Dag: buitenlandse draagmoeders, de wereld achter de reclames](https://nos.nl/l/2640366)
-  > Met getuigenissen van gelukkige wensouders met een baby op de arm, en vrolijke filmpjes van zwangere vrouwen, bieden verschillende internationale...
+- [Sonde komt na 8 jaar aan bij Mercurius voor onderzoek naar mysterieuze holtes](https://nos.nl/l/2640451)
+  > In 2017 stond BepiColombo nog in een testruimte in Noordwijk, vandaag komt de planeetverkenner aan bij Mercurius, zo'n 150 miljoen kilometer van de...
+- [Kapitein Costa Concordia-scheepsramp komt vervroegd vrij](https://nos.nl/l/2640447)
+  > De voormalige kapitein van het cruiseschip Costa Concordia komt na negen jaar gevangenis vervroegd vrij. Francesco Schettino werd in 2017 in hoger...
+- [Oer-Nederlands, D/domstad en naar verluid(t): Groot Dictee slechter gemaakt dan vorig jaar](https://nos.nl/l/2640441)
+  > Is het nou predikaat of predicaat? Goedgeölied, goedgeolied of toch met een spatie? En komt er echt niet een koppelteken ergens in...
+- [Beschuldigde Italiaanse oud-politiechef dood gevonden](https://nos.nl/l/2640436)
+  > De voormalige Italiaans politiechef Gianni De Gennaro heeft zichzelf van het leven beroofd. Er liep een onderzoek van justitie naar de 78-jarige De...
+- [Afgebrande school Deurne waarschijnlijk nog maanden dicht](https://nos.nl/l/2640434)
+  > De school in Deurne waar gisteravond een brand uitbrak blijft waarschijnlijk nog maanden dicht, zegt directeur Pleun van Genugten tegen de NOS. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een steelstofzuiger pak je er snel bij, maar is soms ook snel leeg](https://www.ad.nl/tech/een-steelstofzuiger-pak-je-er-snel-bij-maar-is-soms-ook-snel-leeg~a9d2702e/)
-  > Een steelstofzuiger pak je er makkelijk bij voor snelle stofzuigklusjes. Je wordt niet gehinderd door een snoer. Maar welke zuigt goed en heeft een...
-- [Acteur Hajo Bruins: ‘Ik heb geluk met mijn metabolisme, anders zou ik 120 kilo wegen’](https://www.ad.nl/gezond/acteur-hajo-bruins-ik-heb-geluk-met-mijn-metabolisme-anders-zou-ik-120-kilo-wegen~a270f71f/)
-  > Hij eet drie repen chocolade per week, zweert bij Thaise massages en heeft naar eigen zeggen een (te) kort lontje, vertelt hij in in de rubriek ‘hemd...
-- [Opinie: ‘Bezuinig niet op re-integratie zieke werknemers’](https://www.ad.nl/praat-mee/opinie-bezuinig-niet-op-re-integratie-zieke-werknemers~a21f6985/)
-  > Kijk uit met bezuinigingen op re-integratiemiddelen bij UWV, stelt Mariëtte Patijn. Want wie werkt onder een contract kan bij langdurige ziekte een...
-- [Drie weken na ‘stomme actie’ van Jens van ’t Wout heeft Teun Boer nu wél eerste grote individuele zege te pakken](https://www.ad.nl/schaatsen/drie-weken-na-stomme-actie-van-jens-van-t-wout-heeft-teun-boer-nu-wel-eerste-grote-individuele-zege-te-pakken~aa1d948e/)
-  > Teun Boer heeft zaterdag zijn eerste grote individuele zege geboekt. Bij de derde World Tour in Seoel won de Nijmegenaar de 500 meter, voor...
-- [Zeldzaam en levensgevaarlijk: deze paddenstoel kostte een 5-jarige het leven, bioloog waarschuwt](https://www.ad.nl/binnenland/zeldzaam-en-levensgevaarlijk-deze-paddenstoel-kostte-een-5-jarige-het-leven-bioloog-waarschuwt~a1793cd6/)
-  > Een kleuter uit Geffen is onlangs overleden na een ernstige paddenstoelvergiftiging. De tragedie roept in de omgeving van het Brabantse dorp zorgen...
+- [Bryan Linssen (36) maakt 125ste goal in 400ste eredivisiewedstrijd: het onvermoeibare fenomeen in cijfers](https://www.ad.nl/voetbal/bryan-linssen-36-maakt-125ste-goal-in-400ste-eredivisiewedstrijd-het-onvermoeibare-fenomeen-in-cijfers~afbc9a3b/)
+  > Bryan Linssen (36) bereikte zaterdag tegen PSV een bijzondere mijlpaal: in zijn 400ste wedstrijd in de eredivisie maakte hij zijn 125ste goal. De...
+- [Linssen scoort in 400ste duel in de eredivisie, maar NEC heeft nog drie goals nodig tegen PSV](https://www.ad.nl/voetbal/linssen-scoort-in-400ste-duel-in-de-eredivisie-maar-nec-heeft-nog-drie-goals-nodig-tegen-psv~a85e86ac1/)
+  > Koploper PSV hervat de eredivisie met een uitwedstrijd tegen NEC. Begin vorig seizoen werd het 3-5 in Nijmegen, maar in maart dit jaar won NEC met...
+- [Met deze elf staat FC Utrecht aan de aftrap voor cruciaal thuisduel met Cambuur](https://www.ad.nl/voetbal/met-deze-elf-staat-fc-utrecht-aan-de-aftrap-voor-cruciaal-thuisduel-met-cambuur~a539e7b4/)
+  > Na de nederlaag tegen NEC van twee weken geleden staat de druk erop bij FC Utrecht, vanavond tegen SC Cambuur. Anthony Correira en zijn ploeg hebben...
+- [Kapitein van gekapseisde cruiseschip Costa Concordia na negen jaar vrijgelaten uit cel](https://www.ad.nl/buitenland/kapitein-van-gekapseisde-cruiseschip-costa-concordia-na-negen-jaar-vrijgelaten-uit-cel~a7ebc25e/)
+  > De ex-kapitein van het cruiseschip Costa Concordia, Francesco Schettino, heeft zijn celstraf uitgezeten en is onder voorwaarden vrijgelaten. De...
+- [Chelsea ondanks doelpunt Emmanuel Emegha onderuit tegen Leeds, ManCity vier duels zonder zege in competitie](https://www.ad.nl/voetbal/chelsea-ondanks-doelpunt-emmanuel-emegha-onderuit-tegen-leeds-mancity-vier-duels-zonder-zege-in-competitie~a7cbfdc1/)
+  > Emmanuel Emegha bekroonde zijn basisdebuut bij Chelsea bekroond met een doelpunt, maar zag zijn ploeg wel verliezen tegen Leeds United: 1-3....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bayer krijgt groen licht voor schikking $7,25 mrd in Roundup-zaak](https://fd.nl/bedrijfsleven/1620342/bayer-krijgt-groen-licht-voor-schikking-7-25-mrd-in-roundup-zaak)
-  > Het bedrijf wordt er al jaren van beschuldigd dat het onkruidbestrijdingsmiddel Roundup kanker veroorzaakt.
-- [Wat zegt het gejojo van techaandelen? En is het tijd voor hogere heffingen in box 3?](https://fd.nl/economie/1620189/wat-zegt-het-gejojo-van-techaandelen-en-is-het-tijd-voor-hogere-heffingen-in-box-3)
-  > Anthropic gaat naar de beurs en krijgt een duizelingwekkende waardering. Is dat het bewijs dat de AI-hype nog lang niet voorbij is, of zien we de...
-- [De straf voor achterblijvers is in Nederland niet groot genoeg](https://fd.nl/politiek/1620161/de-straf-voor-achterblijvers-is-in-nederland-niet-groot-genoeg)
-  > Nederlandse bedrijven investeren te weinig in hogere productiviteit. Hoe dat komt? De tucht van de markt faalt hier, betoogt FD-columnist Mathijs...
-- [Wat er gebeurt als de VVD GTA VI speelt](https://fd.nl/opinie/1620156/wat-er-gebeurt-als-de-vvd-gta-vi-speelt)
-  > In de virtuele wereld van de hardgamende Nederlander barst het van de politieke risico’s, schrijft columnist Han Dirk Hekking. Een ongeluk zit in een...
-- [Danny Rensch groeide op in een sekte en bouwde met Chess.com een schaakimperium](https://fd.nl/bedrijfsleven/1620101/danny-rensch-groeide-op-in-een-sekte-en-bouwde-met-chess-com-een-schaakimperium)
-  > Schaken is hip, mede dankzij het op meer dan $1 mrd gewaardeerde Chess.com. Achter dit succes schuilt het bizarre levensverhaal van medeoprichter...
+- [Onderhandelingen klimaattop muurvast, landen flirten met ‘no deal’](https://fd.nl/politiek/1620222/onderhandelingen-klimaattop-muurvast-landen-flirten-met-no-deal)
+  > Onderhandelaars kunnen het niet eens worden over enkele cruciale onderwerpen, waaronder het noemen van fossiele brandstoffen in een slotverklaring.
+- [EU sluit handelsakkoord met Indonesië, invoerrechten op meeste producten weg](https://fd.nl/economie/1620344/eu-sluit-handelsakkoord-met-indonesie-invoerrechten-op-meeste-producten-weg)
+  > Het is ook bedoeld om de impact van de tarieven van de Amerikaanse president Donald Trump te compenseren.
+- [Costa snijdt €204 mrd van nieuwe EU-begroting, Nederland nog niet tevreden](https://fd.nl/politiek/1620343/costa-snijdt-204-mrd-van-nieuwe-eu-begroting-nederland-nog-niet-tevreden)
+  > Voorzitter António Costa van de Europese Raad wil de EU in zeven jaar tijd €1781 mrd laten uitgeven. Dat is €204 mrd minder dan in een eerder...
+- [Denemarken wil strengere visumregels voor Russen na verijdelde aanslag](https://fd.nl/samenleving/1620221/denemarken-wil-strengere-visumregels-voor-russen-na-verijdelde-aanslag)
+  > Kopenhagen wil strengere visumcontroles voor Russen in de EU en de afgifte van toeristenvisa aan Russische burgers stopzetten.
+- [GTA VI breekt volgens uitgever records met $3,8 mrd omzet op eerste verkoopdag](https://fd.nl/samenleving/1620220/gta-vi-breekt-volgens-uitgever-records-met-3-8-mrd-omzet-op-eerste-verkoopdag)
+  > Volgens Rockstar Games is het de grootste entertainmentlancering in de geschiedenis geworden.
 
 ### Meest gelezen
 
