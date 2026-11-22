@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-11-2026 om 22:54*
+*Laatst bijgewerkt: 22-11-2026 om 02:54*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [24 doden nadat boot met grote groep begrafenisgangers omslaat in Nigeria](https://nos.nl/l/2640511)
+  > Een boot met een grote groep mensen die onderweg was naar een begrafenis in het zuiden van Nigeria is omgeslagen. Zeker 24 mensen zijn daarbij...
+- [Premier Jetten en Britse premier Burnham dineren in Rijksmuseum, praten over Oekraïne](https://nos.nl/l/2640510)
+  > Premier Jetten heeft de Britse premier Burnham ontvangen. Ze hebben samen met hun partners gedineerd in het Rijksmuseum in Amsterdam, tussen de...
 - [Italiaanse luxe-juwelier Bulgari (89) overleden](https://nos.nl/l/2640484)
   > De Italiaanse juwelier en zakenman Paolo Bulgari is op 89-jarige leeftijd overleden. Hij gaf decennialang leiding aan het gelijknamige luxemerk.
     ...
@@ -15,10 +19,6 @@
   > Terwijl de gevolgen van de overstromingen in Gaza eerder deze maand nog voelbaar zijn, bereiden veel Palestijnen zich voor op meer noodweer. De...
 - [Maandag alle Belgische vluchten geannuleerd wegens staking](https://nos.nl/l/2640473)
   > Maandag worden alle vluchten van en naar België geschrapt vanwege een landelijke staking. Die staking is in diverse sectoren. Omdat een deel van de...
-- [Klimaattop al een dag uitgelopen en onderhandelingen lijken muurvast te zitten](https://nos.nl/l/2640472)
-  > Kleine oogjes op de klimaattop in Antalya vanavond, met deelnemers die verveeld een uiltje knappen terwijl ze wachten op uitsluitsel. Volgers van...
-- [Dansen tot diep in de nacht? Jongeren kiezen steeds vaker iets anders](https://nos.nl/l/2640463)
-  > Uitgaan en dansen tot in de vroege uurtjes. Het gebeurt nog wel, maar minder jongeren kiezen daarvoor. Dat bleek al uit een groot uitgaansonderzoek...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Trump hoopt op positieve gevolgen na FBI-hack: ‘Misschien leren we hierdoor dingen die we anders nooit zouden hebben geleerd’](https://www.ad.nl/buitenland/trump-hoopt-op-positieve-gevolgen-na-fbi-hack-misschien-leren-we-hierdoor-dingen-die-we-anders-nooit-zouden-hebben-geleerd~ae67dd9c/)
+  > De Amerikaanse president Donald Trump heeft zaterdag gewezen op mogelijke positieve gevolgen na een cyberaanval op de veiligheidsdienst FBI....
+- [Pijnlijke nederlaag Lionel Messi met Inter Miami in eerste play-offduel MLS tegen Columbus Crew: 0-3](https://www.ad.nl/sport/pijnlijke-nederlaag-lionel-messi-met-inter-miami-in-eerste-play-offduel-mls-tegen-columbus-crew-0-3~afc56887/)
+  > Titelverdediger Inter Miami en sterspeler Lionel Messi zijn de play-offs van de MLS slecht begonnen. Zaterdagavond verloor de sterrenformatie uit...
+- [Formateur Eisenkot nodigt partij Netanyahu uit voor gesprekken over regeringsvorming](https://www.ad.nl/buitenland/formateur-eisenkot-nodigt-partij-netanyahu-uit-voor-gesprekken-over-regeringsvorming~ac528ac3/)
+  > De Israëlische formateur Gadi Eisenkot heeft Likoed, de partij van de huidige premier Benjamin Netanyahu, uitgenodigd voor gesprekken over een...
+- [Drama voor Desire Doué: PSG-ster verlaat in tranen het veld en moet vrezen voor ernstige knieblessure](https://www.ad.nl/voetbal/drama-voor-desire-doue-psg-ster-verlaat-in-tranen-het-veld-en-moet-vrezen-voor-ernstige-knieblessure~a43f7222/)
+  > Paris Saint-Germain heeft de uitwedstrijd tegen OGC Nice in de Ligue 1 met 2-3 gewonnen. De Champions League-winnaar van de afgelopen twee seizoen...
 - [Real Madrid wint in aanloop naar PSV-thuis met nodige moeite: Carlos Espí weer belangrijk als invaller](https://www.ad.nl/voetbal/real-madrid-wint-in-aanloop-naar-psv-thuis-met-nodige-moeite-carlos-espi-weer-belangrijk-als-invaller~a3e2efaf/)
   > Real Madrid heeft zaterdagavond met flink wat pijn en moeite de drie punten gepakt in de thuiswedstrijd tegen Celta de Vigo. De ploeg van coach José...
-- [Michael van Gerwen wint gedenkwaardige partij met twee negendarters op Grand Slam, ook Gian van Veen naar halve finales](https://www.ad.nl/darts/michael-van-gerwen-wint-gedenkwaardige-partij-met-twee-negendarters-op-grand-slam-ook-gian-van-veen-naar-halve-finales~a34e75a1/)
-  > Drie Nederlanders staan zondagmiddag in de halve finales van de Grand Slam of Darts. Michael van Gerwen won een gedenkwaardige partij waarin hij in...
-- [Dylan Vente en blunderende FC Groningen-keeper bezorgen Heerenveen zege in Euroborg](https://www.ad.nl/voetbal/dylan-vente-en-blunderende-fc-groningen-keeper-bezorgen-heerenveen-zege-in-euroborg~acebab88/)
-  > sc Heerenveen heeft de Derby van het Noorden overtuigend naar zich toegetrokken. In een levendige ontmoeting in de Euroborg profiteerden de Friezen...
-- [Succesvol debuut Alex Pastoor: PEC Zwolle verslaat Telstar en pakt belangrijke punten in strijd om lijfsbehoud](https://www.ad.nl/voetbal/succesvol-debuut-alex-pastoor-pec-zwolle-verslaat-telstar-en-pakt-belangrijke-punten-in-strijd-om-lijfsbehoud~a0e0bf5b/)
-  > Alex Pastoor heeft een succesvol debuut beleefd bij PEC Zwolle. De trainer zag zijn ploeg op bezoek bij Telstar de drie belangrijke punten pakken in...
-- [Alexander Zverev klopt Daniil Medvedev en plaatst zich voor eindstrijd tegen Carlos Alcaraz](https://www.ad.nl/tennis/alexander-zverev-klopt-daniil-medvedev-en-plaatst-zich-voor-eindstrijd-tegen-carlos-alcaraz~a8e1874a/)
-  > Het tennisseizoen sluit traditiegetrouw af met de ATP Finals. In Turijn strijden de beste acht tennissers van afgelopen seizoen tegen elkaar. Volg...
 
 ### Meest gelezen
 
