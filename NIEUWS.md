@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-11-2026 om 18:20*
+*Laatst bijgewerkt: 23-11-2026 om 00:05*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
-- [Jaitsen Singh (81) overleden, was langst gedetineerde Nederlander in buitenland](https://nos.nl/l/2640625)
-  > Jaitsen Singh is vanochtend overleden in zijn cel in de gevangenis in Scheveningen. Dat meldt zijn advocaat namens de familie in een...
-- [Volop zon, maar het wordt wel koud deze week](https://nos.nl/l/2640621)
-  > Na een frisse ochtend met wat mist was het vandaag een stralend zonnige dag. Daar gaan we er komende week meer van krijgen.
-        In de nacht van...
-- [Werkzaamheden aan Galecopperbrug bij Utrecht eerder klaar, brug morgen weer open](https://nos.nl/l/2640619)
-  > De Galecopperbrug op de A12 richting Arnhem gaat morgen om 05.00 uur weer open, meldt Rijkswaterstaat. Dat is een dag eerder dan gepland. De brug bij...
-- [Droneaanval op Russisch schip in Libische haven, schade onbekend](https://nos.nl/l/2640603)
-  > In de haven van de Libische stad Benghazi heeft een explosie een Russisch schip beschadigd. Volgens de eerste berichten van de plaatselijke...
-- [Roltrap in Amsterdam slaat op hol, acht mensen gewond](https://nos.nl/l/2640599)
-  > In Amsterdam zijn acht mensen gewond geraakt door een op hol geslagen roltrap. Het ongeluk gebeurde iets voor 12.00 uur bij station Bijlmer Arena.
-  ...
+- [Nog een zetel voor de Democraten, grootste meerderheid in Huis sinds 1992](https://nos.nl/l/2640657)
+  > De Democraten in de Verenigde Staten hebben ook hun 258e zetel veroverd in het Huis van Afgevaardigden. Daarmee hebben ze de grootste meerderheid in...
+- [Nieuwe aanvallen op tankers bij Straat van Hormuz gemeld](https://nos.nl/l/2640649)
+  > In de Straat van Hormuz zijn nieuwe aanvallen gemeld op de civiele scheepvaart. Volgens Iraanse staatsmedia zijn nog eens twee tankers in brand...
+- [Ook pand in Winschoten dicht na neonazistische kooigevechten in Finsterwolde](https://nos.nl/l/2640644)
+  > Burgemeester Sikkema van de gemeente Oldambt heeft naar aanleiding van de Zembla-uitzending over neonazi's opnieuw een pand voor zes maanden...
+- ['Bittere tegenslag': experts vrezen gevolgen voor volgende klimaattoppen](https://nos.nl/l/2640641)
+  > De klimaattop in Turkije is ten einde en wat bij veel uitgeputte aanwezigen zal blijven hangen, is de bittere smaak van een historische mislukking....
+- [Bewoners redden de bruggen in Pekela: 'We hebben iets unieks bereikt'](https://nos.nl/l/2640638)
+  > Ruim de helft van de 34 bruggen in Pekela dreigde te verdwijnen, maar dankzij bewoners worden ze nu een voor een opgeknapt. Zo blijft de...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dromen hebben niet altijd een vaste betekenis: ‘Een droom over je ex betekent niet dat je hem terug wilt’](https://www.ad.nl/gezond/dromen-hebben-niet-altijd-een-vaste-betekenis-een-droom-over-je-ex-betekent-niet-dat-je-hem-terug-wilt~ad17cf90/)
-  > Nu de dagen korter worden, kun je je ’s avonds sneller slaperig voelen en krijg je zin om naar bed te gaan: lekker dromen. In dromen lijkt alles...
-- [Liverpool op weg naar afgetekende zege op tiental van ManUnited](https://www.ad.nl/voetbal/liverpool-op-weg-naar-afgetekende-zege-op-tiental-van-manunited~a39fc3e4/)
-  > Mauricio Pochettino heeft bij Manchester United de ontslagen Michael Carrick opgevolgd. Hij debuteert vandaag tegen Liverpool. Volg het hier vanaf...
-- [Docent haalt uit naar ouders die pubers met regen naar school brengen: ‘Ze zijn niet van suiker’](https://www.ad.nl/binnenland/docent-haalt-uit-naar-ouders-die-pubers-met-regen-naar-school-brengen-ze-zijn-niet-van-suiker~ad4273e1/)
-  > ‘Ze zijn niet van suiker. Je kweekt geen doorzettingsvermogen bij je puber op deze manier.’ Met die woorden haalt Ilse Boot, docent Frans van het...
-- [Fortuna Sittard verslaat Go Ahead na vermakelijke tweede helft en houdt aansluiting met subtop](https://www.ad.nl/voetbal/fortuna-sittard-verslaat-go-ahead-na-vermakelijke-tweede-helft-en-houdt-aansluiting-met-subtop~aacc1ee95/)
-  > Fortuna Sittard heeft in de laatste wedstrijd van deze speelronde gewonnen op bezoek bij Go Ahead Eagles. Na een saaie eerste helft kwam er in de...
-- [Halsema vraagt tijdens bezoek aan India op sociale media aandacht voor ontvoerde Insiya](https://www.ad.nl/binnenland/halsema-vraagt-tijdens-bezoek-aan-india-op-sociale-media-aandacht-voor-ontvoerde-insiya~a4d9d329/)
-  > Burgemeester Femke Halsema heeft via een oproep op Instagram aandacht gevraagd voor de zaak van het ontvoerde meisje Insiya. Met de Engelstalige...
+- [AD Voetbalpodcast | ‘Met het ontslag van Correia sneuvelt weer een kroonprins onder de trainers’](https://www.ad.nl/voetbal/ad-voetbalpodcast-met-het-ontslag-van-correia-sneuvelt-weer-een-kroonprins-onder-de-trainers~a42af5cd9/)
+  > Van koploper naar nummer vijf in de eredivisie. Feyenoord verloor in de Kuip van Excelsior en zag een dag later FC Twente, Ajax en AZ voorkomen. Wat...
+- [Gian van Veen verliest Grand Slam-finale van genadeloze Gerwyn Price: ‘In vijf legs verpest ik de hele wedstrijd’](https://www.ad.nl/darts/gian-van-veen-verliest-grand-slam-finale-van-genadeloze-gerwyn-price-in-vijf-legs-verpest-ik-de-hele-wedstrijd~a0158ffcf/)
+  > Gian van Veen heeft zijn eerste Grand Slam of Darts-finale verloren. Lang ging het gelijk op tegen angstgegner Gerwyn Price, maar nadat Van Veen op...
+- [Burgerdoden na Russische aanvallen op regio Kyiv, drone treft drukke supermarkt](https://www.ad.nl/buitenland/live-oorlog-oekraine-nederlandse-ambassade-in-kyiv-beschadigd-na-aanval-russische-drone~adfb97be/)
+  > Bij Russische aanvallen op voorsteden van de Oekraïense hoofdstad Kyiv zijn zondag zeker zes mensen om het leven gekomen en raakten anderen gewond....
+- [FC Utrecht grijpt hard in en ontslaat trainer Correia na teleurstellende start van het seizoen](https://www.ad.nl/voetbal/fc-utrecht-grijpt-hard-in-en-ontslaat-trainer-correia-na-teleurstellende-start-van-het-seizoen~ad039882/)
+  > Anthony Correia is niet langer de hoofdtrainer van FC Utrecht. De 44-jarige oefenmeester is, ondanks dat zijn contract nog tweeënhalf jaar doorloopt,...
+- [Nu nog tegen het christendom schoppen is vooral heel erg ‘gaap’](https://www.ad.nl/binnenland/nu-nog-tegen-het-christendom-schoppen-is-vooral-heel-erg-gaap~a95e7637/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘CVC wil af van miljardendeal grondstoffenleverancier Irca’](https://fd.nl/financiele-markten/1620231/cvc-wil-af-van-miljardendeal-grondstoffenleverancier-irca)
-  > CVC betwist de cijfers van overnamekandidaat Irca na een plotselinge resultatenval. De verkopende partij ontkent malversaties en maakt zich mogelijk...
-- [Drijvende kracht achter juweliershuis Bulgari overleden](https://fd.nl/bedrijfsleven/1620230/drijvende-kracht-achter-juweliershuis-bulgari-overleden)
-  > Met het overlijden van Paolo Bulgari verliest het voormalige familiebedrijf een van de drijvende krachten achter het luxemerk.
-- [Lidl-familie zet Nederlands afvalbedrijf PreZero te koop](https://fd.nl/bedrijfsleven/1620293/lidl-familie-zet-nederlands-afvalbedrijf-prezero-te-koop)
-  > Bankiers tippen andere afvalbedrijven, zoals Remondis, als mogelijke koper van het bedrijf uit Arnhem. In de afvalsector zijn recent meer bedrijven...
-- [De Jaime Gilinski-methode](https://fd.nl/financiele-markten/1620193/de-jaime-gilinski-methode)
-  > De Colombiaanse miljardair Jaime Gilinski staat bekend om zijn agressieve investeringsstrategie. De casus van de Britse Metro Bank is een...
-- [Spanje wil bankenbelasting doorzetten om woningcrisis te bestrijden](https://fd.nl/financiele-markten/1620349/spanje-wil-bankenbelasting-doorzetten-om-woningcrisis-te-bestrijden)
-  > De Spaanse regering verwacht volgend jaar €1,4 mrd extra op te halen via de bankenbelasting. Het geld zal geïnvesteerd worden in de woningmarkt.
+- [Fossiele lobby](https://fd.nl/opinie/1620228/fossiele-lobby)
+  > Hogere prijzen versnellen de transitie. Dat weten we al heel lang in theorie en sinds de laatste twee energiecrises ook in de praktijk, schrijft...
+- [Brussel richt vizier op verslavend ontwerp van beleggingsplatforms](https://fd.nl/financiele-markten/1620187/brussel-richt-vizier-op-verslavend-ontwerp-van-beleggingsplatforms)
+  > De werkwijze van beleggingsplatforms en finfluencers gaat waarschijnlijk sterk veranderen. Met nieuwe consumentenwetgeving wil de Europese Commissie...
+- [Smartphonevrije kinderen - maar hoe zit het met de ouders?](https://fd.nl/opinie/1619942/smartphonevrije-kinderen-maar-hoe-zit-het-met-de-ouders)
+  > In de bus, op het schoolplein, in de speeltuin – overal zijn ouders verzonken in hun schermpjes. Zo komen kinderen nooit van hun telefoonverslaving...
+- [Personalia maandag 23 november](https://fd.nl/bedrijfsleven/1620347/personalia-maandag-23-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Terugkoop Rabo-certificaten ruim een kwart overtekend](https://fd.nl/financiele-markten/1620233/terugkoop-rabo-certificaten-ruim-een-kwart-overtekend)
+  > Rabobank koopt ruim €1,14 mrd aan certificaten in. De terugkoopactie was ruim overtekend.
 
 ### Meest gelezen
 
