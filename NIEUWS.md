@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-11-2026 om 12:20*
+*Laatst bijgewerkt: 25-11-2026 om 22:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Israëlische oppositie verdeeld over eenheidsregering met partij van Netanyahu](https://nos.nl/l/2640967)
-  > De oppositie in Israël is verdeeld over hoe het beste een nieuwe regering kan worden gevormd. Yair Golan van de centrumlinkse partij De Democraten...
-- [Staatssecretaris: toezichthouders bang om in bepaalde slachthuizen te werken](https://nos.nl/l/2640966)
-  > Een toenemend aantal medewerkers van de Nederlandse Voedsel- en Waren Autoriteit (NVWA) durft niet meer in bepaalde slachthuizen te werken "wegens...
-- [China lanceert ruimteschip Shenzhou 24: voor het eerst buitenlandse astronaut mee](https://nos.nl/l/2640960)
-  > Diep in Gobiwoestijn ligt China's oudste ruimtehaven: de Jiuquan lanceerbasis. Om 08.18 uur verbreekt een oorverdovende explosie de serene stilte. De...
-- [Duitse politie pakt 14- en 15-jarigen op voor rechts-extremistische aanslagplannen](https://nos.nl/l/2640959)
-  > De Duitse politie heeft drie verdachten van 14 en 15 jaar opgepakt in een onderzoek naar een rechts-extremistische terreurgroep. Dat gebeurde bij...
-- [Controle auto leidt tot vondst van ruim 6000 kilo vuurwerk in Rotterdam](https://nos.nl/l/2640958)
-  > In een loods in Rotterdam-Hoogvliet heeft de politie duizenden kilo's illegaal vuurwerk gevonden. Volgens de politie gaat het om de grootste vangst...
+- ['Tot alles in beweging komt' van Ester Naomi Perquin wint Boekenbon Literatuurprijs](https://nos.nl/l/2641032)
+  > Ester Naomi Perquin heeft de Boekenbon Literatuurprijs gewonnen met haar boek Tot alles in beweging komt. Dat werd vanavond bekendgemaakt in podium...
+- [Nu in Afrika, straks in Europa? Nieuwe malariamug rukt op naar de stad](https://nos.nl/l/2641026)
+  > Het is een beroerde timing. Net nu de VS de geldkraan voor ontwikkelingshulp heeft dichtgedraaid, duikt in Afrika een nieuwe malariamug op waar het...
+- [Twee Libische officieren overleden na aanval Oekraïne, in Kyiv dode na Russische aanval](https://nos.nl/l/2641025)
+  > Twee Libische marineofficieren zijn overleden nadat zij verwondingen hadden opgelopen bij een Oekraïense droneaanval op een Russisch oorlogsschip dit...
+- [Presentator Winfried Baijens stapt over naar BNNVARA en talkshow Pauw & De Wit](https://nos.nl/l/2641024)
+  > Winfried Baijens (48) vertrekt volgend jaar bij de NOS. De presentator van het NOS Journaal gaat naar BNNVARA. "Daar voeg ik me bij Roos Moggré,...
+- [Temperamentvolle tv-kok Gordon Ramsay nieuwe presentator Top Gear](https://nos.nl/l/2641022)
+  > De temperamentvolle tv-kok Gordon Ramsay wordt een van de nieuwe presentatoren van het Britse autoprogramma Top Gear. De BBC brengt het programma na...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Henk Dammer (78) heeft uitgezaaide prostaatkanker, maar door behandeling radioactieve straling geniet hij weer](https://www.ad.nl/gezond/henk-dammer-78-heeft-uitgezaaide-prostaatkanker-maar-door-behandeling-radioactieve-straling-geniet-hij-weer~a8fde21f/)
-  > Toen Henk Dammer (78) er elf jaar geleden achter kwam dat hij prostaatkanker had, was hij niet eens ongerust. Wél toen hij hoorde dat het uitgezaaid...
-- [Muhammed (20) verdwijnt na bezoek aan ouderlijk huis en wordt later dood gevonden in vrieskist: rouwende familie gaat uit van tragisch ongeval](https://www.ad.nl/utrecht/muhammed-20-verdwijnt-na-bezoek-aan-ouderlijk-huis-en-wordt-later-dood-gevonden-in-vrieskist-rouwende-familie-gaat-uit-van-tragisch-ongeval~aff3b623/)
-  > De familie van de 20-jarige jongen die in Utrecht dood werd gevonden in een vrieskist, gaat uit van een tragisch ongeval. Muhammed zou in de kist...
-- [Geraldine krijgt de wind van voren en Emma straalt in paarse jurk](https://www.ad.nl/show/geraldine-krijgt-de-wind-van-voren-en-emma-straalt-in-paarse-jurk~a4d15c8f/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [In deze wijk hebben ze geen keuze, dus gaan ze straks fors meer betalen voor het warmtenet](https://www.ad.nl/binnenland/in-deze-wijk-hebben-ze-geen-keuze-dus-gaan-ze-straks-fors-meer-betalen-voor-het-warmtenet~ab6186da/)
-  > Huishoudens die zijn aangesloten op het warmtenet zien hun rekening volgend jaar waarschijnlijk fors stijgen. Het AD peilde de stemming onder...
-- [Oud-Feyenoorder Sterling komt weg met voorwaardelijke celstraf na gevaarlijk rijgedrag en lachgasgebruik](https://www.ad.nl/voetbal/oud-feyenoorder-sterling-komt-weg-met-voorwaardelijke-celstraf-na-gevaarlijk-rijgedrag-en-lachgasgebruik~a4db9f1f/)
-  > Raheem Sterling hoeft niet de gevangenis in. De Engelse aanvaller, die vorig seizoen nog bij Feyenoord speelde, moest voor de rechter komen wegens...
+- [Stand CL | Nog hoop voor PSV en Feyenoord? Dit zijn volgens Opta de kansen om de volgende ronde te halen](https://www.ad.nl/voetbal/stand-cl-nog-hoop-voor-psv-en-feyenoord-dit-zijn-volgens-opta-de-kansen-om-de-volgende-ronde-te-halen~a7ceca5d/)
+  > PSV krijgt nog een redelijk kans toegedicht om de tussenronde van de Champions League te halen, volgens de cijfers van Opta. De Eindhovenaren zakten...
+- [Donyell Malen helpt AS Roma aan punt tegen PSG, Lille mede dankzij goal Ayase Ueda langs Bayern](https://www.ad.nl/voetbal/donyell-malen-helpt-as-roma-aan-punt-tegen-psg-lille-mede-dankzij-goal-ayase-ueda-langs-bayern~a5ff3428/)
+  > Donyell Malen liet zich woensdagavond opnieuw gelden bij AS Roma. De Nederlandse spits kwam als invaller in het veld en had slechts elf minuten nodig...
+- [Liverpool wint dankzij goals Alexander Isak en Florian Wirtz bij Belgische kampioen Club Brugge](https://www.ad.nl/voetbal/liverpool-wint-dankzij-goals-alexander-isak-en-florian-wirtz-bij-belgische-kampioen-club-brugge~a97aa978/)
+  > Liverpool heeft in de Champions League een overtuigende zege geboekt. Het team van coach Andoni Iraola won woensdagavond in het koude Jan...
+- [Wall Street sluit gemengd, AI-zorgen lijken af te nemen](https://www.ad.nl/economie/wall-street-sluit-gemengd-ai-zorgen-lijken-af-te-nemen~aa2e96cf/)
+  > De aandelenbeurzen in New York zijn woensdag overwegend lager gesloten. Dinsdag kwamen de zorgen over AI weer naar boven, nadat de terugkeer van...
+- [Emoties lopen hoog op bij keuzes in Boer zoekt Vrouw: ‘Dit blijft me heel mijn leven bij'](https://www.ad.nl/show/emoties-lopen-hoog-op-bij-keuzes-in-boer-zoekt-vrouw-dit-blijft-me-heel-mijn-leven-bij~a3a4d632/)
+  > De boeren Perry, Jan en Anne in Boer zoekt Vrouw hebben gekozen. Ze gaan op stedentrip met hun potentiële liefde, al blijft het de vraag óf er...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Toezichthouder zet streep door voorlopige boete voor Tata Steel](https://fd.nl/bedrijfsleven/1620526/toezichthouder-zet-streep-door-voorlopige-boete-voor-tata-steel)
-  > Bedrijf en Omgevingsdienst Noordzeekanaalgebied maken afspraken over toegang en begeleiding van inspecteurs.
-- [Lagarde heeft de ECB weer saai gemaakt, tot haar eigen afgrijzen](https://fd.nl/financiele-markten/1620521/lagarde-heeft-de-ecb-weer-saai-gemaakt-tot-haar-eigen-afgrijzen)
-  > Mede dankzij ECB-president Lagarde is het gemopper op de ECB verstomd, signaleert FD-columnist Bert Colijn. ‘De betrekkelijke rust is een gezond...
-- [Anthropics beursgang wakkert vastgoedgekte aan in grote techhubs](https://fd.nl/economie/1620375/anthropics-beursgang-wakkert-vastgoedgekte-aan-in-grote-techhubs)
-  > Kredietverstrekkers zetten aandelen in AI-bedrijven maar al te graag om in contante koopkracht. Woningen in steden als San Francisco en Miami worden...
-- [Voor beursgang in de VS, eerst een Amerikaanse ceo](https://fd.nl/opinie/1619989/voor-beursgang-in-de-vs-eerst-een-amerikaanse-ceo)
-  > Veel Nederlandse scale-ups ambiëren een beursgang in de Verenigde Staten. Zie daarbij een cruciale voorwaarde niet over het hoofd: zorg op tijd voor...
-- [Een Europese belasting op digitale diensten? Niet als het aan Ierland ligt](https://fd.nl/politiek/1620636/een-europese-belasting-op-digitale-diensten-niet-als-het-aan-ierland-ligt)
-  > De Ierse schatkist drijft op de winsten van een handvol Amerikaanse bedrijven. Het is Dublin er alles aan gelegen de VS te vriend te houden. Een...
+- [Ommekeer op Wall Street na dieprood begin](https://fd.nl/financiele-markten/1620784/ommekeer-op-wall-street-na-dieprood-begin)
+  > De Nasdaq zakte aanvankelijk diep in het rood vanwege zorgen over de hoge AI-investeringen. Maar daarna de indices grotendeels. Door koopjesjagers,...
+- [Akkoord over cao levensmiddelenbedrijf: 7,5% meer loon voor supermarktmedewerkers](https://fd.nl/bedrijfsleven/1620783/akkoord-over-cao-levensmiddelenbedrijf-7-5-meer-loon-voor-supermarktmedewerkers)
+  > Bovenop de gefaseerde loonsverhoging krijgen medewerkers wordt het loongebouw herschikt om meer doorgroei mogelijk te maken.
+- [Amerikaanse investeerder Todd Boehly neemt buitenlandse activa Lukoil over](https://fd.nl/bedrijfsleven/1620687/amerikaanse-investeerder-todd-boehly-neemt-buitenlandse-activa-lukoil-over)
+  > Lukoil verkoopt zijn buitenlandse eigendommen in ruil voor Russische bedrijven en $10 mrd aan eigen aandelen.
+- [OM eist in hoger beroep alsnog taakstraf tegen belastingadviseur van Afrojack](https://fd.nl/samenleving/1620676/om-eist-in-hoger-beroep-alsnog-taakstraf-tegen-belastingadviseur-van-afrojack)
+  > De veroordeelde fiscalist beschouwt zijn eerdere bestraffing als een ‘smet op zijn blazoen.’
+- [Britse koopjesketen Poundland alsnog ten onder](https://fd.nl/bedrijfsleven/1620781/britse-koopjesketen-poundland-alsnog-ten-onder)
+  > 600 winkels verdwijnen uit de winkelstraten in het VK in een van de grootste Britse faillissementen van de afgelopen jaren.
 
 ### Meest gelezen
 
