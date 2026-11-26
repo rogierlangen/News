@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-11-2026 om 04:45*
+*Laatst bijgewerkt: 26-11-2026 om 14:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Brad Pitt en Angelina Jolie treffen na jarenlange ruzie schikking over wijngaard](https://nos.nl/l/2641040)
-  > Brad Pitt en Angelina Jolie hebben een schikking getroffen in de jarenlang slepende zaak over de verkoop van een wijndomein in Frankrijk. Hiermee...
-- [Inslag op ruimterots uit 2022 veroorzaakte krater zo groot als een stadion](https://nos.nl/l/2641039)
-  > Toen de Amerikaanse ruimtevaartorganisatie NASA in 2022 een ruimtevoertuig opzettelijk liet inslaan op een planetoïde, ontstond er een krater ter...
-- [Meerdere bewoners geëvacueerd na vondst zwaar vuurwerk in woning Rhenen](https://nos.nl/l/2641038)
-  > Meerdere woningen in Rhenen, bij Veenendaal, zijn gisteravond ontruimd nadat in een woning en in een voertuig zwaar illegaal vuurwerk is...
-- [Andy Taylor (65), gitarist van Duran Duran, overleden](https://nos.nl/l/2641037)
-  > Andy Taylor, gitarist van de Britse band Duran Duran, is op 65-jarige leeftijd overleden. Hij leed al geruime tijd aan uitgezaaide prostaatkanker. In...
-- [Onvrede binnen VVD over dubbelfunctie Yesilgöz, zegt oud-partijvoorzitter Van der Wal](https://nos.nl/l/2641036)
-  > Voormalig VVD-partijvoorzitter Christianne van der Wal zegt dat "veel leden" van de VVD twijfels hebben over het politiek leiderschap van VVD-leider...
+- [Spanjaard Hernández de Cos wordt president ECB, Klaas Knot grijpt naast Europese topfunctie](https://nos.nl/l/2641111)
+  > De Spanjaard Pablo Hernández de Cos wordt de nieuwe president van de Europese Centrale Bank (ECB). Hij volgt in februari de Franse Christine Lagarde...
+- [Man krijgt acht jaar cel en tbs voor online seksueel misbruik van zeker 245 meisjes](https://nos.nl/l/2641110)
+  > Een 40-jarige man uit het Limburgse dorp Herten is veroordeeld tot acht jaar gevangenisstraf en tbs met dwangverpleging. Bas P. maakte zich schuldig...
+- [Kamer wil 10 miljoen euro voor winternoodpakket Gaza, kabinet heeft geen bezwaar](https://nos.nl/l/2641107)
+  > De Tweede Kamer wil dat het kabinet zo snel mogelijk tien miljoen euro vrijmaakt voor noodhulp aan Gaza. Met de winter in aantocht moet het geld...
+- [Rechter beslist over verbod op Meta-bril vanwege misbruik met stiekem filmen](https://nos.nl/l/2641106)
+  > De Consumentenbond en de stichtingen Offlimits en The Firewall willen dat de camerabril van Meta verboden wordt. De drie organisaties pleitten daar...
+- [Twee Irakezen opgepakt in Duitsland voor voorbereiden terroristische aanslagen](https://nos.nl/l/2641105)
+  > In Duitsland zijn twee Irakese mannen van 31 en 34 jaar oud opgepakt op verdenking van het plannen van meerdere terreuraanslagen, waaronder op een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Navo-baas Mark Rutte en Trump roepen Rusland op Oekraïne-oorlog niet uit te breiden](https://www.ad.nl/buitenland/live-oorlog-oekraine-nederlandse-ambassade-in-kyiv-beschadigd-na-aanval-russische-drone~adfb97be/)
-  > Navo-leider Mark Rutte en de Amerikaanse president Donald Trump roepen Rusland op om de oorlog in Oekraïne 'niet groter te maken'. Dat brachten ze...
-- [Stortvloed aan klachten over malafide thuisbatterijverkopers](https://www.ad.nl/binnenland/stortvloed-aan-klachten-over-malafide-thuisbatterijverkopers~ae832309/)
-  > Vereniging Eigen Huis, de Autoriteit Consument & Markt en de Consumentenbond worden overstelpt met duizenden klachten over verkopers van...
-- [Joke Bruijs krijgt plein in ‘haar’ Wassenaar, echtgenoot Frits is vereerd: ‘Een prachtig eerbetoon’](https://www.ad.nl/wassenaar/joke-bruijs-krijgt-plein-in-haar-wassenaar-echtgenoot-frits-is-vereerd-een-prachtig-eerbetoon~a65cf24f/)
-  > Joke Bruijs krijgt ruim een jaar na haar overlijden een passend eerbetoon in haar woonplaats Wassenaar. Het evenementenplein in het hart van het dorp...
-- [Brad Pitt en Angelina Jolie treffen na jarenlange ruzie eindelijk schikking over Franse wijngaard](https://www.ad.nl/show/brad-pitt-en-angelina-jolie-treffen-na-jarenlange-ruzie-eindelijk-schikking-over-franse-wijngaard~a0b18751/)
-  > Hollywoodsterren Brad Pitt en Angelina Jolie hebben een schikking getroffen over hun Franse kasteel en wijngaard. Daarmee is eindelijk een einde...
-- [New York stelt honderdste Thanksgiving-parade noodgedwongen uit vanwege verwachte storm](https://www.ad.nl/buitenland/new-york-stelt-honderdste-thanksgiving-parade-noodgedwongen-uit-vanwege-verwachte-storm~a8799233/)
-  > De stad New York stelt de traditionele Thanksgiving-parade uit naar zaterdag vanwege een verwachte storm. Het is voor het eerst in het honderdjarige...
+- [Minder starters kopen een huis, woningmarkt groeit niet meer](https://www.ad.nl/wonen/minder-starters-kopen-een-huis-woningmarkt-groeit-niet-meer~ad8a5071/)
+  > Op steeds meer plekken in Nederland groeit het aantal woningverkopen niet meer. Vooral starters zorgen voor de afremming: het aantal starters dat in...
+- [Doodgestoken vrouw in Houten zocht eerder hulp bij Utrechtse stichting voor huiselijk geweld](https://www.ad.nl/binnenland/doodgestoken-vrouw-in-houten-zocht-eerder-hulp-bij-utrechtse-stichting-voor-huiselijk-geweld~ab08d124/)
+  > De 34-jarige vrouw die woensdagochtend in Houten werd vermoord door haar ex-partner, was eerder bekend bij het Oranje Huis in Leidsche Rijn. Dat is...
+- [Positie Yesilgöz wankelt nu partijprominenten aan haar stoelpoten zagen: ‘Haar positie is acuut in gevaar gebracht’](https://www.ad.nl/politiek/positie-yesilgoz-wankelt-nu-partijprominenten-aan-haar-stoelpoten-zagen-haar-positie-is-acuut-in-gevaar-gebracht~a9469b313/)
+  > Het wordt met de dag onrustiger bij de VVD. Na onthullingen van deze site over provinciale bestuurders die aansturen op een vertrek van partijleider...
+- [Wielerploeg Visma - Lease a Bike krijgt volgend jaar nieuwe naam](https://www.ad.nl/wielrennen/wielerploeg-visma-lease-a-bike-krijgt-volgend-jaar-nieuwe-naam~a7ada7cb/)
+  > Wielerploeg Visma - Lease a Bike krijgt een andere naam. Softwareleverancier Visma stopt volgend seizoen als naamsponsor, meldt de Nederlandse...
+- [Kind (12) wordt in park omsingeld en mishandeld door groep op fatbikes, twee twintigers redden hem](https://www.ad.nl/binnenland/kind-12-wordt-in-park-omsingeld-en-mishandeld-door-groep-op-fatbikes-twee-twintigers-redden-hem~a200236d/)
+  > Bevend, huilend en schreeuwend van angst komt een 12-jarige jongen uit Berkel en Rodenrijs thuis. Een uur lang is hij ontroostbaar. Wat hem even...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Duurzaam beleggen bezorgt pensioenfondsen lagere rendementen](https://fd.nl/economie/1620684/duurzaam-beleggen-bezorgt-pensioenfondsen-lagere-rendementen)
-  > Vandaag in de Dagkoers: Duurzaam beleggen kan pensioenfondsen rendement kosten; Trump haalt zijn importheffingen weer uit de kast; en Brussel wil...
-- [Veel potentie](https://fd.nl/opinie/1620782/veel-potentie)
-  > Het blijft fascinerend hoeveel risico mensen durven nemen op de grote beloftes van AI.
-- [Naar kantoor gaan: doe het voor die leuke, jonge collega](https://fd.nl/opinie/1620461/naar-kantoor-gaan-doe-het-voor-die-leuke-jonge-collega)
-  > Je bent jong en je wilt wat. Carrière maken bijvoorbeeld. Dan moet je natuurlijk niet in de steek gelaten worden door thuiswerkers, schrijft...
-- [Slachtofferadvocaat Arlette Schijns: ‘Financiële compensatie is geen boodschappengeld, maar erkenning’](https://fd.nl/samenleving/1620227/slachtofferadvocaat-arlette-schijns-financiele-compensatie-is-geen-boodschappengeld-maar-erkenning)
-  > Schijns laat in haar promotieonderzoek zien dat slachtoffers van de ernstigste misdrijven in het huidige stelsel vaak berooid achterblijven.
-- [Supermarkten verkopen meer biologische producten](https://fd.nl/bedrijfsleven/1619993/supermarkten-verkopen-meer-biologische-producten)
-  > A-merkenfabrikanten bieden nauwelijks een duurzamere optie. Supermarkten zetten biologische varianten van huismerkproducten wel in de schappen,...
+- [Angelina Jolie en Brad Pitt schikken na jaren ruzie over Fransewijngaard](https://fd.nl/samenleving/1620817/angelina-jolie-en-brad-pitt-schikken-na-jaren-ruzie-over-fransewijngaard)
+  > Het filmsterkoppel kocht in 2008 een van de mooiste wijnhuizen in Frankrijk, Château Miraval, maar belandde twee jaar later in een vechtscheiding.
+- [Lezersgrieven gericht aan Joris van Os](https://fd.nl/samenleving/1620640/lezersgrieven-gericht-aan-joris-van-os)
+  > Joris van Os beantwoordt in zijn ommuurde onderkomen in Saint-Tropez, dat hij dankzij Het Financieele Dagblad verworven heeft, lezersvragen.
+- [Halve sandwiches en smokkelpennen: Brazilië in de ban van de afslankspuit](https://fd.nl/bedrijfsleven/1620374/halve-sandwiches-en-smokkelpennen-brazilie-in-de-ban-van-de-afslankspuit)
+  > De afslankspuit komt voor meer Brazilianen binnen bereik, nu andere bedrijven stoffen uit diabetesmedicatie na mogen maken. Het verandert ook de eet-...
+- [Franse schuldenangst deed Klaas Knot de das om in machtsspel rond ECB-presidentschap](https://fd.nl/financiele-markten/1620109/franse-schuldenangst-deed-klaas-knot-de-das-om-in-machtsspel-rond-ecb-presidentschap)
+  > Lange tijd zag het er goed uit voor Klaas Knot als opvolger van ECB-president Christine Lagarde. Tot plots de ECB-puzzel anders werd gelegd. Hoe kon...
+- [Als Nederland de houding niet wijzigt, grijpen we vaker mis bij Europese topposities](https://fd.nl/opinie/1620639/als-nederland-de-houding-niet-wijzigt-grijpen-we-vaker-mis)
+  > De jarenlange Nederlandse opstelling in Europa – en de daarbijbehorende ‘Hollandse botheid’ – wordt door andere lidstaten steeds minder gepruimd,...
 
 ### Meest gelezen
 
