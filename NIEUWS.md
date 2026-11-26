@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-11-2026 om 14:49*
+*Laatst bijgewerkt: 26-11-2026 om 23:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Spanjaard Hernández de Cos wordt president ECB, Klaas Knot grijpt naast Europese topfunctie](https://nos.nl/l/2641111)
-  > De Spanjaard Pablo Hernández de Cos wordt de nieuwe president van de Europese Centrale Bank (ECB). Hij volgt in februari de Franse Christine Lagarde...
-- [Man krijgt acht jaar cel en tbs voor online seksueel misbruik van zeker 245 meisjes](https://nos.nl/l/2641110)
-  > Een 40-jarige man uit het Limburgse dorp Herten is veroordeeld tot acht jaar gevangenisstraf en tbs met dwangverpleging. Bas P. maakte zich schuldig...
-- [Kamer wil 10 miljoen euro voor winternoodpakket Gaza, kabinet heeft geen bezwaar](https://nos.nl/l/2641107)
-  > De Tweede Kamer wil dat het kabinet zo snel mogelijk tien miljoen euro vrijmaakt voor noodhulp aan Gaza. Met de winter in aantocht moet het geld...
-- [Rechter beslist over verbod op Meta-bril vanwege misbruik met stiekem filmen](https://nos.nl/l/2641106)
-  > De Consumentenbond en de stichtingen Offlimits en The Firewall willen dat de camerabril van Meta verboden wordt. De drie organisaties pleitten daar...
-- [Twee Irakezen opgepakt in Duitsland voor voorbereiden terroristische aanslagen](https://nos.nl/l/2641105)
-  > In Duitsland zijn twee Irakese mannen van 31 en 34 jaar oud opgepakt op verdenking van het plannen van meerdere terreuraanslagen, waaronder op een...
+- [Hard tegen hard bij begrotingsonderhandelingen EU](https://nos.nl/l/2641176)
+  > De een bedelt om een korting, de ander dreigt met een veto. Europese regeringsleiders gunnen elkaar tot nu toe geen millimeter bij de...
+- [Honderdduizenden Amerikanen op feestdag zonder stroom door noodweer](https://nos.nl/l/2641174)
+  > In de VS zitten op Thanksgiving, een van de belangrijkste feestdagen in het jaar, meer dan 800.000 Amerikanen zonder stroom. De meesten wonen in...
+- [Curaçaoënaar Vernond Rombley lijkt na tien jaar gevangenis toch vrijuit te gaan](https://nos.nl/l/2641171)
+  > De strafzaak tegen de Curaçaose Vernond Rombley wordt opnieuw behandeld. Het Gemeenschappelijk Hof van Justitie in Willemstad heeft zijn...
+- [Erkens wil sluiting slachthuis bij intimidatie controleurs, nieuwe regels maken](https://nos.nl/l/2641164)
+  > Staatssecretaris Erkens van Landbouw wil strengere regels invoeren om slachthuizen te kunnen sluiten bij intimidatie van inspecteurs. Woensdag kwam...
+- [Wapenvergunningen van twee AfD'ers onterecht ingetrokken, oordeelt hoogste bestuursrechter](https://nos.nl/l/2641163)
+  > De Duitse autoriteiten hebben enkele jaren geleden ten onrechte de wapenvergunningen van twee leden van de inmiddels opgeheven AfD-jongerentak Junge...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Minder starters kopen een huis, woningmarkt groeit niet meer](https://www.ad.nl/wonen/minder-starters-kopen-een-huis-woningmarkt-groeit-niet-meer~ad8a5071/)
-  > Op steeds meer plekken in Nederland groeit het aantal woningverkopen niet meer. Vooral starters zorgen voor de afremming: het aantal starters dat in...
-- [Doodgestoken vrouw in Houten zocht eerder hulp bij Utrechtse stichting voor huiselijk geweld](https://www.ad.nl/binnenland/doodgestoken-vrouw-in-houten-zocht-eerder-hulp-bij-utrechtse-stichting-voor-huiselijk-geweld~ab08d124/)
-  > De 34-jarige vrouw die woensdagochtend in Houten werd vermoord door haar ex-partner, was eerder bekend bij het Oranje Huis in Leidsche Rijn. Dat is...
-- [Positie Yesilgöz wankelt nu partijprominenten aan haar stoelpoten zagen: ‘Haar positie is acuut in gevaar gebracht’](https://www.ad.nl/politiek/positie-yesilgoz-wankelt-nu-partijprominenten-aan-haar-stoelpoten-zagen-haar-positie-is-acuut-in-gevaar-gebracht~a9469b313/)
-  > Het wordt met de dag onrustiger bij de VVD. Na onthullingen van deze site over provinciale bestuurders die aansturen op een vertrek van partijleider...
-- [Wielerploeg Visma - Lease a Bike krijgt volgend jaar nieuwe naam](https://www.ad.nl/wielrennen/wielerploeg-visma-lease-a-bike-krijgt-volgend-jaar-nieuwe-naam~a7ada7cb/)
-  > Wielerploeg Visma - Lease a Bike krijgt een andere naam. Softwareleverancier Visma stopt volgend seizoen als naamsponsor, meldt de Nederlandse...
-- [Kind (12) wordt in park omsingeld en mishandeld door groep op fatbikes, twee twintigers redden hem](https://www.ad.nl/binnenland/kind-12-wordt-in-park-omsingeld-en-mishandeld-door-groep-op-fatbikes-twee-twintigers-redden-hem~a200236d/)
-  > Bevend, huilend en schreeuwend van angst komt een 12-jarige jongen uit Berkel en Rodenrijs thuis. Een uur lang is hij ontroostbaar. Wat hem even...
+- [Players Championship Finals: Wessel Nijman voert plaatsingslijst aan, dit is het volledige programma](https://www.ad.nl/darts/players-championship-finals-wessel-nijman-voert-plaatsingslijst-aan-dit-is-het-volledige-programma~ad5f00d3/)
+  > De Players Championship Finals staan voor de deur: van vrijdag 27 tot en met zondag 29 november strijden de beste darters in het Engelse Minehead om...
+- [NEC overtreft alle verwachtingen in Europa: na zege op Stade Rennes is volgende ronde zo goed als binnen](https://www.ad.nl/voetbal/nec-overtreft-alle-verwachtingen-in-europa-na-zege-op-stade-rennes-is-volgende-ronde-zo-goed-als-binnen~acdd0a1a/)
+  > NEC heeft een derde overwinning op rij geboekt in de Europa League. De ploeg van trainer Dick Schreuder won in het Gofferstadion in Nijmegen met 3-1...
+- [FC Twente gaat in extra tijd nog onderuit bij SC Freiburg](https://www.ad.nl/voetbal/fc-twente-gaat-in-extra-tijd-nog-onderuit-bij-sc-freiburg~a1ce4c3c/)
+  > FC Twente heeft na drie zeges op rij de eerste punten verspeeld in de Conference League. Het team van John van den Brom ging met 2-1 onderuit bij SC...
+- [AZ draait het na rust helemaal om en boekt dankzij invallers fraaie overwinning in Praag](https://www.ad.nl/voetbal/az-draait-het-na-rust-helemaal-om-en-boekt-dankzij-invallers-fraaie-overwinning-in-praag~aec1502d/)
+  > AZ heeft dankzij een knappe comeback de derde zege geboekt in de Europa League. De Alkmaarders kwamen op bezoek bij Sparta Praag voor rust met 2-0...
+- [Boer zoekt Vrouw richting ontknoping: Joey maakt zijn keuze en eerste vonken slaan over op Rhodos](https://www.ad.nl/show/boer-zoekt-vrouw-richting-ontknoping-joey-maakt-zijn-keuze-en-eerste-vonken-slaan-over-op-rhodos~a7e2f845e/)
+  > Alleen boer Joey (31) moest donderdagavond nog kleur bekennen in Boer zoekt Vrouw. Na een zenuwslopend keuzemoment – volgens hem ‘by far het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Angelina Jolie en Brad Pitt schikken na jaren ruzie over Fransewijngaard](https://fd.nl/samenleving/1620817/angelina-jolie-en-brad-pitt-schikken-na-jaren-ruzie-over-fransewijngaard)
-  > Het filmsterkoppel kocht in 2008 een van de mooiste wijnhuizen in Frankrijk, Château Miraval, maar belandde twee jaar later in een vechtscheiding.
-- [Lezersgrieven gericht aan Joris van Os](https://fd.nl/samenleving/1620640/lezersgrieven-gericht-aan-joris-van-os)
-  > Joris van Os beantwoordt in zijn ommuurde onderkomen in Saint-Tropez, dat hij dankzij Het Financieele Dagblad verworven heeft, lezersvragen.
-- [Halve sandwiches en smokkelpennen: Brazilië in de ban van de afslankspuit](https://fd.nl/bedrijfsleven/1620374/halve-sandwiches-en-smokkelpennen-brazilie-in-de-ban-van-de-afslankspuit)
-  > De afslankspuit komt voor meer Brazilianen binnen bereik, nu andere bedrijven stoffen uit diabetesmedicatie na mogen maken. Het verandert ook de eet-...
-- [Franse schuldenangst deed Klaas Knot de das om in machtsspel rond ECB-presidentschap](https://fd.nl/financiele-markten/1620109/franse-schuldenangst-deed-klaas-knot-de-das-om-in-machtsspel-rond-ecb-presidentschap)
-  > Lange tijd zag het er goed uit voor Klaas Knot als opvolger van ECB-president Christine Lagarde. Tot plots de ECB-puzzel anders werd gelegd. Hoe kon...
-- [Als Nederland de houding niet wijzigt, grijpen we vaker mis bij Europese topposities](https://fd.nl/opinie/1620639/als-nederland-de-houding-niet-wijzigt-grijpen-we-vaker-mis)
-  > De jarenlange Nederlandse opstelling in Europa – en de daarbijbehorende ‘Hollandse botheid’ – wordt door andere lidstaten steeds minder gepruimd,...
+- [Valse beschuldiging](https://fd.nl/opinie/1620821/valse-beschuldiging)
+  > Voor oneerlijk industriebeleid moet je in de VS zijn, ziet Mathijs Bouman. De EU is juist slecht in het steunen van de industrie.
+- [Een VVD voor liberalen uit de lanen of straatvechters?](https://fd.nl/opinie/1620820/een-vvd-voor-liberalen-uit-de-lanen-of-straatvechters)
+  > Nostalgie bekruipt me bij het scrollen door het beeldarchief van een partij die verschoof van villa naar Vinex, en van wijn en kaasvlinder naar ‘bier...
+- [Particuliere belegger omarmt AI-tools](https://fd.nl/financiele-markten/1620804/particuliere-belegger-omarmt-ai-tools)
+  > AI dient vooral om informatie te verzamelen en beleggingen te vergelijken. Jongeren zijn enthousiast, terwijl oudere beleggers de technologie...
+- [Vraag naar rekenkracht blijft groot, beurscorrectie AI lijkt vooral ingegeven door politieke ontwikkelingen](https://fd.nl/financiele-markten/1620645/vraag-naar-rekenkracht-blijft-groot-beurscorrectie-ai-lijkt-vooral-ingegeven-door-politieke-ontwikkelingen)
+  > ‘De uitgaven aan AI in de VS gaan sneller dan politiek houdbaar is’, stellen economen van de Italiaanse bank UniCredit. Maar puur economisch gezien...
+- [Israëlische oppositieleider Eisenkot zet nieuwe stap in formatie](https://fd.nl/politiek/1620829/israelische-oppositieleider-eisenkot-zet-nieuwe-stap-in-formatie)
+  > De oppositieleider heeft tot 6 december de tijd om een Israëlische coalitie te smeden.
 
 ### Meest gelezen
 
