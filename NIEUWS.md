@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-11-2026 om 23:34*
+*Laatst bijgewerkt: 27-11-2026 om 07:33*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Hard tegen hard bij begrotingsonderhandelingen EU](https://nos.nl/l/2641176)
-  > De een bedelt om een korting, de ander dreigt met een veto. Europese regeringsleiders gunnen elkaar tot nu toe geen millimeter bij de...
-- [Honderdduizenden Amerikanen op feestdag zonder stroom door noodweer](https://nos.nl/l/2641174)
-  > In de VS zitten op Thanksgiving, een van de belangrijkste feestdagen in het jaar, meer dan 800.000 Amerikanen zonder stroom. De meesten wonen in...
-- [Curaçaoënaar Vernond Rombley lijkt na tien jaar gevangenis toch vrijuit te gaan](https://nos.nl/l/2641171)
-  > De strafzaak tegen de Curaçaose Vernond Rombley wordt opnieuw behandeld. Het Gemeenschappelijk Hof van Justitie in Willemstad heeft zijn...
-- [Erkens wil sluiting slachthuis bij intimidatie controleurs, nieuwe regels maken](https://nos.nl/l/2641164)
-  > Staatssecretaris Erkens van Landbouw wil strengere regels invoeren om slachthuizen te kunnen sluiten bij intimidatie van inspecteurs. Woensdag kwam...
-- [Wapenvergunningen van twee AfD'ers onterecht ingetrokken, oordeelt hoogste bestuursrechter](https://nos.nl/l/2641163)
-  > De Duitse autoriteiten hebben enkele jaren geleden ten onrechte de wapenvergunningen van twee leden van de inmiddels opgeheven AfD-jongerentak Junge...
+- [Costa Rica laat VN-rapporteur voor Palestijnse Gebieden niet toe](https://nos.nl/l/2641197)
+  > VN-rapporteur Francesca Albanese mag Costa Rica niet in. Het land heeft haar de toegang geweigerd vanwege mogelijke banden met terrorisme, meldt de...
+- [Op veel plekken koudste 27 november ooit gemeten, uitschieter naar -8](https://nos.nl/l/2641196)
+  > Op meerdere plekken in Nederland was het vannacht de koudste 27 novembernacht ooit gemeten. De laagste temperatuur werd gemeten in Twente, waar het...
+- [Grote brand op industrieterrein in olieopslag Moerdijk geblust](https://nos.nl/l/2641190)
+  > In Moerdijk heeft een grote brand gewoed op een industrieterrein. De vlammen sloegen vanochtend vroeg uit een pand waar plantaardige vetten en oliën...
+- [Wekdienst 27/11: Verdachte moordzaak Houten voorgeleid • Start wereldbekerseizoen veldrijden](https://nos.nl/l/2641188)
+  > Goedemorgen! Vandaag wordt de verdachte van de moord in Houten voor het eerst voorgeleid. Ook begint het wereldbekerseizoen veldrijden.
+        Eerst...
+- [Meer jongvolwassenen met een bijstandsuitkering, niet duidelijk waarom](https://nos.nl/l/2641183)
+  > Het aantal jongvolwassen in de bijstand stijgt. Eind september hadden 43.000 jongeren tussen de 18 en 27 jaar een bijstandsuitkering. Dat is 6,3...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Players Championship Finals: Wessel Nijman voert plaatsingslijst aan, dit is het volledige programma](https://www.ad.nl/darts/players-championship-finals-wessel-nijman-voert-plaatsingslijst-aan-dit-is-het-volledige-programma~ad5f00d3/)
-  > De Players Championship Finals staan voor de deur: van vrijdag 27 tot en met zondag 29 november strijden de beste darters in het Engelse Minehead om...
-- [NEC overtreft alle verwachtingen in Europa: na zege op Stade Rennes is volgende ronde zo goed als binnen](https://www.ad.nl/voetbal/nec-overtreft-alle-verwachtingen-in-europa-na-zege-op-stade-rennes-is-volgende-ronde-zo-goed-als-binnen~acdd0a1a/)
-  > NEC heeft een derde overwinning op rij geboekt in de Europa League. De ploeg van trainer Dick Schreuder won in het Gofferstadion in Nijmegen met 3-1...
-- [FC Twente gaat in extra tijd nog onderuit bij SC Freiburg](https://www.ad.nl/voetbal/fc-twente-gaat-in-extra-tijd-nog-onderuit-bij-sc-freiburg~a1ce4c3c/)
-  > FC Twente heeft na drie zeges op rij de eerste punten verspeeld in de Conference League. Het team van John van den Brom ging met 2-1 onderuit bij SC...
-- [AZ draait het na rust helemaal om en boekt dankzij invallers fraaie overwinning in Praag](https://www.ad.nl/voetbal/az-draait-het-na-rust-helemaal-om-en-boekt-dankzij-invallers-fraaie-overwinning-in-praag~aec1502d/)
-  > AZ heeft dankzij een knappe comeback de derde zege geboekt in de Europa League. De Alkmaarders kwamen op bezoek bij Sparta Praag voor rust met 2-0...
-- [Boer zoekt Vrouw richting ontknoping: Joey maakt zijn keuze en eerste vonken slaan over op Rhodos](https://www.ad.nl/show/boer-zoekt-vrouw-richting-ontknoping-joey-maakt-zijn-keuze-en-eerste-vonken-slaan-over-op-rhodos~a7e2f845e/)
-  > Alleen boer Joey (31) moest donderdagavond nog kleur bekennen in Boer zoekt Vrouw. Na een zenuwslopend keuzemoment – volgens hem ‘by far het...
+- [Nanna verloor haar zoon, maar vond hem terug op Google Maps: ‘Pas na vijf minuten drong het tot me door’](https://www.ad.nl/binnenland/nanna-verloor-haar-zoon-maar-vond-hem-terug-op-google-maps-pas-na-vijf-minuten-drong-het-tot-me-door~a8be5d48/)
+  > Nanna Akkermans (47) verloor op 22 februari 2022 haar zoon Mickey. Hij werd 21 jaar. Een jaar na zijn overlijden zoekt ze op Google Street View naar...
+- [Zelensky noemt Trumps post met Poetin ‘vreemd’ en waarschuwt: ‘Hij kan geen vriend zijn’](https://www.ad.nl/buitenland/zelensky-noemt-trumps-post-met-poetin-vreemd-en-waarschuwt-hij-kan-geen-vriend-zijn~a27ae54e/)
+  > De Oekraïense president Volodymyr Zelensky vindt de recente post van de Amerikaanse president Donald Trump waarop hij en de Russische president...
+- [Na rel met Amerikanen onthult Margraten nu zelf een bord over zwarte bevrijders, mails onthullen bemoeienis oud-adviseur Trump](https://www.ad.nl/binnenland/na-rel-met-amerikanen-onthult-margraten-nu-zelf-een-bord-over-zwarte-bevrijders-mails-onthullen-bemoeienis-oud-adviseur-trump~a304182b/)
+  > Margraten maakt de bijdrage van zwarte Amerikaanse militairen aan de bevrijding van Nederland weer zichtbaar. Nadat vorig jaar informatiepanelen...
+- [Primeur in Nederland: eerste trajectcontrole binnen de bebouwde kom](https://www.ad.nl/binnenland/primeur-in-nederland-eerste-trajectcontrole-binnen-de-bebouwde-kom~a6002bc2/)
+  > Rotterdam krijgt de landelijke primeur van een trajectcontrole binnen de bebouwde kom. Het systeem moet automobilisten aansporen een hele weg lang...
+- [Taliban voert verplichte naam ‘Bibi’ in voor duizenden vrouwen, verwarring in ziekenhuizen dreigt](https://www.ad.nl/buitenland/taliban-voert-verplichte-naam-bibi-in-voor-duizenden-vrouwen-verwarring-in-ziekenhuizen-dreigt~a78dcf99/)
+  > Een nieuwe regel van de Taliban wist in één klap de identiteit van duizenden vrouwen in Afghanistan uit. Vrouwen in het noorden van het land krijgen...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Valse beschuldiging](https://fd.nl/opinie/1620821/valse-beschuldiging)
-  > Voor oneerlijk industriebeleid moet je in de VS zijn, ziet Mathijs Bouman. De EU is juist slecht in het steunen van de industrie.
-- [Een VVD voor liberalen uit de lanen of straatvechters?](https://fd.nl/opinie/1620820/een-vvd-voor-liberalen-uit-de-lanen-of-straatvechters)
-  > Nostalgie bekruipt me bij het scrollen door het beeldarchief van een partij die verschoof van villa naar Vinex, en van wijn en kaasvlinder naar ‘bier...
-- [Particuliere belegger omarmt AI-tools](https://fd.nl/financiele-markten/1620804/particuliere-belegger-omarmt-ai-tools)
-  > AI dient vooral om informatie te verzamelen en beleggingen te vergelijken. Jongeren zijn enthousiast, terwijl oudere beleggers de technologie...
-- [Vraag naar rekenkracht blijft groot, beurscorrectie AI lijkt vooral ingegeven door politieke ontwikkelingen](https://fd.nl/financiele-markten/1620645/vraag-naar-rekenkracht-blijft-groot-beurscorrectie-ai-lijkt-vooral-ingegeven-door-politieke-ontwikkelingen)
-  > ‘De uitgaven aan AI in de VS gaan sneller dan politiek houdbaar is’, stellen economen van de Italiaanse bank UniCredit. Maar puur economisch gezien...
-- [Israëlische oppositieleider Eisenkot zet nieuwe stap in formatie](https://fd.nl/politiek/1620829/israelische-oppositieleider-eisenkot-zet-nieuwe-stap-in-formatie)
-  > De oppositieleider heeft tot 6 december de tijd om een Israëlische coalitie te smeden.
+- [CBS: aantal jongeren met een bijstandsuitkering groeit](https://fd.nl/economie/1620850/cbs-aantal-jongeren-met-een-bijstandsuitkering-groeit)
+  > Het aantal jongeren tot 27 jaar oud in de bijstand steeg in september met 6,3% ten opzichte van dezelfde periode een jaar eerder.
+- [Live: Techaandelen in een ‘moshpit’, slechtste maand in vier jaar](https://fd.nl/financiele-markten/1620849/live-hoe-sluiten-we-een-volatiele-handelsweek-af)
+  > Maandag keerde Jensen Huang terug als topman bij Nvidia, hoe gaan we het weekend in? In de VS zien we een halve handelsdag vanwege Thanksgiving. In...
+- [Jachtenbouwer Dries Wajer: ‘Een boot aan Trump verkopen gaat me te ver’](https://fd.nl/samenleving/1620720/jachtenbouwer-dries-wajer-een-boot-aan-trump-verkopen-gaat-me-te-ver)
+  > Ook te gast:  filmredacteur André Nientied, ondernemer Nicky Roeg en Annette Mosman, CEO van pensioenuitvoerder APG.
+- [Personalia vrijdag 27 november](https://fd.nl/bedrijfsleven/1620731/personalia-vrijdag-27-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Anja (66) stelde geen vragen, opende een bankrekening in Zwitserland en kocht huizen in Den Haag en Ede](https://fd.nl/samenleving/1618247/anja-66-stelde-geen-vragen-opende-een-bankrekening-in-zwitserland-en-kocht-huizen-in-den-haag-en-ede)
+  > Anja kreeg al jong een relatie met Cem. In hun dertigjarige huwelijk zat hij vaker vast dan dat hij vrij was. Anja had een blanco strafblad, maar...
 
 ### Meest gelezen
 
