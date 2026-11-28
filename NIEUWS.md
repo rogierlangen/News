@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-11-2026 om 17:56*
+*Laatst bijgewerkt: 28-11-2026 om 01:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Stichting sleept Odido voor de rechter voor schadevergoeding na hack](https://nos.nl/l/2641291)
-  > Stichting CUIC heeft namens ruim 500.000 personen Odido gedagvaard. De organisatie eist een schadevergoeding omdat het telecombedrijf afgelopen...
-- [Backstreet Boys volgend jaar zomer 'back again' voor concert in Arena](https://nos.nl/l/2641285)
-  > "Oh my God, we're back again", klinkt het volgend jaar waarschijnlijk in de Johan Cruijff Arena in Amsterdam. Na vijf jaar komt de Amerikaanse...
-- [Podcast De Dag: de negen levens van de Spaanse premier](https://nos.nl/l/2641282)
-  > Komende zondag gaat Spanje naar de stembus. Blijft de Spaanse socialistische premier Pedro Sánchez aan de macht of maakt Spanje een ruk naar rechts?...
-- [Nederland schaft extra pantservoertuigen aan voor nieuw infanteriebataljon](https://nos.nl/l/2641281)
-  > Volgens een gezamenlijke overeenkomst met vier Europese bondgenoten krijgt Nederland enkele tientallen extra pantservoertuigen. Het gaat om...
-- [Man die zijn ex-vrouw doodstak in Houten verdacht van moord, blijft langer vastzitten](https://nos.nl/l/2641275)
-  > De 39-jarige man die wordt verdacht van het doodsteken van zijn ex-vrouw in Houten, blijft twee weken langer vastzitten. Dat heeft de...
+- [Bewakers Artsen zonder Grenzen gedood in Gaza, Israël spreekt van Hamas-leden](https://nos.nl/l/2641333)
+  > Artsen zonder Grenzen (AzG) heeft vol afschuw gereageerd op een Israëlische aanval op de Gazastrook waarbij twee medewerkers zijn gedood. De...
+- [ProRail zet roltrappen stil op vijf stations na ongeluk in Amsterdam](https://nos.nl/l/2641332)
+  > ProRail zet dit weekend uit voorzorg achttien roltrappen op vijf stations uit naar aanleiding van het ongeluk met een roltrap op station...
+- [Gewonden bij brand in winkel Rotterdam](https://nos.nl/l/2641331)
+  > Bij een brand in een winkelpand in Rotterdam zijn zeker twee mensen gewond geraakt. Een iemand liep brandwonden op en is naar het ziekenhuis...
+- [25 jaar cel geëist tegen Canadees die gif verzond aan kwetsbare mensen](https://nos.nl/l/2641330)
+  > Aanklagers in Canada hebben 25 jaar cel geëist tegen een man die wereldwijd gif verkocht aan mensen die een einde aan hun leven wilden maken. Kenneth...
+- [Britse ITV News toont beelden van live aangestuurde aanslag in VK vanuit Irak](https://nos.nl/l/2641328)
+  > Er zijn beelden opgedoken waarop te zien is hoe een aanslag in Londen, waarbij brand werd gesticht, live wordt aangestuurd vanuit een loods in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Opnieuw tegenslag voor Bayern München: Jamal Musiala uitgeschakeld door hamstringblessure](https://www.ad.nl/voetbal/opnieuw-tegenslag-voor-bayern-munchen-jamal-musiala-uitgeschakeld-door-hamstringblessure~a29f747a/)
-  > Jamal Musiala staat opnieuw aan de kant bij Bayern München. Hij heeft een hamstringblessure opgelopen en komt mogelijk dit jaar niet meer in actie.
-- [Max Verstappen en collega’s krijgen extra tijd van wedstrijdleiding na twee rode vlaggen](https://www.ad.nl/formule-1/max-verstappen-en-collegas-krijgen-extra-tijd-van-wedstrijdleiding-na-twee-rode-vlaggen~a102ba1e/)
-  > Max Verstappen kende geen goede start van het weekend in Qatar. De coureur van Red Bull Racing moet in de tweede vrije training een hoop goedmaken...
-- [Die ene vrouw met een kalasjnikov aan de muur zegt misschien wel alles over Dilan Yesilgöz](https://www.ad.nl/politiek/die-ene-vrouw-met-een-kalasjnikov-aan-de-muur-zegt-misschien-wel-alles-over-dilan-yesilgoz~ab744005/)
-  > Dilan Yesilgöz (49) knokt zaterdag voor haar leiderschap van de VVD. Haar reactie op de aanvallen op haar? „Ik ben gewoon aan het werk, schat.” Het...
-- [Kuivenhoven verrast, ook Zonneveld en Doets ronde verder: vanavond nog zeven Nederlanders in actie](https://www.ad.nl/darts/kuivenhoven-verrast-ook-zonneveld-en-doets-ronde-verder-vanavond-nog-zeven-nederlanders-in-actie~a124e59b/)
-  > Het laatste toernooi voor het WK Darts gaat vanmiddag van start! Op de Players Championship Finals in Minehead komen maar liefst twaalf Nederlanders...
-- [Hoe kan het dat Muhammed overleed in vrieskist? ‘Binnen een uur kan je in zo’n ruimte al komen te overlijden’](https://www.ad.nl/binnenland/hoe-kan-het-dat-muhammed-overleed-in-vrieskist-binnen-een-uur-kan-je-in-zon-ruimte-al-komen-te-overlijden~a5382585/)
-  > Hij zocht zeer waarschijnlijk een slaapplaats toen hij besloot in een vrieskist voor het huis van zijn ouders in Utrecht te gaan liggen. De tragische...
+- [Minstens veertien migranten verdronken voor de kust van Canarische Eilanden](https://www.ad.nl/buitenland/minstens-veertien-migranten-verdronken-voor-de-kust-van-canarische-eilanden~abd1932c/)
+  > Reddingswerkers hebben op een migrantenboot zeker veertien lichamen aangetroffen. De boot dobberde op zo’n 60 kilometer voor de kust van het Spaanse...
+- [ProRail schakelt preventief achttien extra roltrappen uit op vijf stations, wegens op hol geslagen roltrap](https://www.ad.nl/binnenland/prorail-schakelt-preventief-achttien-extra-roltrappen-uit-op-vijf-stations-wegens-op-hol-geslagen-roltrap~aebe141a/)
+  > ProRail heeft achttien extra roltrappen op vijf stations preventief buiten gebruik genomen. Dat meldt de organisatie in de nacht van vrijdag op...
+- [25 jaar geëist tegen Canadees die zelfdodingspakketten wereld over verstuurde, ook naar Nederland](https://www.ad.nl/buitenland/25-jaar-geeist-tegen-canadees-die-zelfdodingspakketten-wereld-over-verstuurde-ook-naar-nederland~a34a1fde/)
+  > Canadese aanklagers hebben een gevangenisstraf van 25 jaar geëist tegen Kenneth Law, de man die dodelijke stoffen en materiaal stuurde naar mensen...
+- [Servische Studentenlijst schuift universiteitsprofessor naar voren als presidentskandidaat](https://www.ad.nl/buitenland/servische-studentenlijst-schuift-universiteitsprofessor-naar-voren-als-presidentskandidaat~ad6e6b4e/)
+  > De Servische studentenbeweging die in oktober de parlementsverkiezingen verrassend won, heeft een presidentskandidaat aangewezen. Het is een...
+- [Favoriet Wessel Nijman verliest ondanks gemiddelde van 110,56 (!), Van Gerwen wel naar volgende ronde](https://www.ad.nl/darts/favoriet-wessel-nijman-verliest-ondanks-gemiddelde-van-110-56-van-gerwen-wel-naar-volgende-ronde~a124e59b/)
+  > Het laatste toernooi voor het WK Darts is van start gegaan! Op de Players Championship Finals in Minehead zijn er nog zeven van de twaalf...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Prima week voor aandelenbeleggers dankzij comeback van Jensen Huang](https://fd.nl/financiele-markten/1620765/prima-week-voor-aandelenbeleggers-dankzij-comeback-van-jensen-huang)
-  > November was de tweede zware maand achter elkaar voor de AI-trade, maar Nasdaq is nog steeds pas in correctieterritorium.
-- [Dit jaar minder belastinginkomsten uit box 2: grootaandeelhouders wachten lager tarief af](https://fd.nl/politiek/1620895/dit-jaar-minder-belastinginkomsten-uit-box-2-grootaandeelhouders-wachten-lager-tarief-af)
-  > De staat krijgt te maken met een tegenvaller van €1,3 mrd bij de inkomstenbelasting. Die is het gevolg van de tariefsverlaging in box 2, waardoor...
-- [Russische ambassade waarschuwt werknemers wapenfabrikant](https://fd.nl/politiek/1620904/russische-ambassade-waarschuwt-werknemers-wapenfabrikant)
-  > De Russische ambassade heeft werknemers van Nederlandse defensiebedrijven gewaarschuwd. Als ze actief deelnemen aan ‘vijandigheden’,  dan worden ze...
-- [Machtsstrijd Tata-concern draait uit op een gang naar de Indiase rechter](https://fd.nl/bedrijfsleven/1620903/machtsstrijd-tata-concern-draait-uit-op-een-gang-naar-de-indiase-rechter)
-  > Tata Trusts, een verzameling liefdadigheidsstichtingen van de familie Tata, wil via de rechter de herbenoeming van de ceo van de holding Tata Sons...
-- [Ondanks de oorlog willen Oekraïense start-ups van hun land een ‘clean tech hub’ maken](https://fd.nl/bedrijfsleven/1620729/ondanks-de-oorlog-willen-oekraiense-startups-van-hun-land-een-clean-tech-hub-maken)
-  > Oekraïense duurzame start-ups proberen zichzelf wereldwijd in de kijker te spelen en oogsten daarmee lof. ‘We bouwen niet alleen terug, we bouwen ook...
+- [De opmars van een opmerkelijk vastgoedmodel: ‘Als ik over twee jaar doodga, wrijven zij in hun handjes’](https://fd.nl/bedrijfsleven/1620499/de-opmars-van-een-opmerkelijk-vastgoedmodel-als-ik-over-twee-jaar-doodga-wrijven-zij-in-hun-handjes)
+  > Door alternatieve overwaardeproducten kunnen oudere huiseigenaren hun levens financieel verrijken. Investeerders verdienen juist aan hun...
+- [Vlaamse koekjesfabriek Lotus werd beurswonder: ‘Mijn vader vraagt nog altijd meteen naar de omzet’](https://fd.nl/financiele-markten/1620462/vlaamse-koekjesfabriek-lotus-werd-beurswonder-mijn-vader-vraagt-nog-altijd-meteen-naar-de-omzet)
+  > Jan Boone, topman van Lotus Bakeries, trekt met zijn Biscoff-koekje de beurs naar records. Vergelijkingen met ASML zijn al gemaakt.
+- [Hoe graffiti een volwassen kunstvorm werd](https://fd.nl/samenleving/1620859/hoe-graffiti-een-volwassen-kunstvorm-werd)
+  > Met een tentoonstelling vol toonaangevende kunstenaars legaliseert het Centraal Museum, in Utrecht, graffiti. ‘Elke vorm van visuele expressie wordt...
+- [Romig, zacht en zoet: melkachtige parfums zijn immens populair](https://fd.nl/samenleving/1620857/romig-zacht-en-zoet-melkachtige-parfums-zijn-immens-populair)
+  > In de parfumerie duiken geuren op die worden omschreven als creamy en milky. Romige zachtheid als antwoord op een gure samenleving en de pornoficatie...
+- [Profiteren van de vette jaren, kunnen we dat nog?](https://fd.nl/politiek/1620854/profiteren-van-de-vette-jaren-kunnen-we-dat-nog)
+  > De Nederlandse economie blijft maar groeien. We lijken het niet door te hebben en doen er veel te weinig mee, betoogt FD-columnist Mathijs Bouman.
 
 ### Meest gelezen
 
